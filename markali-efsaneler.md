@@ -1,4 +1,4 @@
-# KAV kibritleri nasıl kurtuldu?
+# KAV kibritleri nasıl kurtuldu? (2.5*)
 
 Ünlü Kav kibritlerinin satışı müthiş derecede düşmüş. Firma artık zarar etmeye başlamış. Ne yaparlarsa yapsınlar satışı arttıramıyorlarmış. Sabah akşam toplantılar yapıp bir çıkış yolu arıyorlarmış.
 
@@ -10,7 +10,7 @@ Genç satışçı bunu şöyle bir numarayla başarmış: İmalatta, kibritlerin
 
 Bu efsaneyi Burak Disbudak gönderdi.
 
-# Cola soğuk içilir
+# Cola soğuk içilir (2.5*)
 
 Coca Cola'yı bulan şahıs bu işe başlarken tüm dünyanın tadını seveceği bir şerbet yapmayı kafasına takmış. Tüm servetini buna yatırmış. Sonunda da ünlü Coca Cola formülünü hazırlayıp piyasaya sürmüş. Ama sonuç tam bir fiyasko olmuş. Yılların emeği boşa gitmiş. Fakat daha sonra şirketin bir ortağı formülde hiç değişiklik yapmadan Coca Cola'yı bugünkü satış rakamlarına ulaştırmış. Ne mi yapmış? Sadece şerbeti soğutup satışa sunmuş! Bu nedenle tüm Coca Cola şişelerinin üzerinde "Soğuk içiniz" yazıyormuş.
 
@@ -26,22 +26,22 @@ Bu efsaneyi Erkan Edebak gönderdi.
 
 ## Üyeler ne demiş?
 
-Engin Boztepe: Uludağ Gazozu'nun formülü
+**Engin Boztepe: Uludağ Gazozu'nun formülü**
 Uludağ Gazoz'un merhum sahibi Nuri Erbak'ın kurduğu Bursa Nuri Erbak İkokulu'nda okudum. 5. sınıftayken okulun en başarılı 10 öğrencisini (içlerinde ben de vardım) Nuri Erbak öğle yemeği için kabul etmişti. Yemek sırasında, bize, oğluyla seyahate çıkarken ayrı uçaklara bindiklerini anlatmıştı. Çünkü Uludağ gazozunun formülünü sadece 3 kişi biliyormuş: Kendisi, oğlu ve fabrikanın üretim şefi.
 
-mithat can kaya: Neden soğuk içilir?
+**mithat can kaya: Neden soğuk içilir?**
 Kimyayla alakası olan herkes bilir ki Coca Cola asidik yapıdadır. Bundan ötürü de dışarıya ısı verdikçe, yani soğudukça, daha "kararlı" hale gelir. Böylece de lezzeti artar. Coca Cola soğuk sevmemizin ve şişelerin üstünde "soğuk içiniz" yazmasının nedeni bu "asid-baz" ilişkisinden kaynaklanmaktadır.
 
-Umut Korkmaz: Büyük tazminat
+**Umut Korkmaz: Büyük tazminat**
 Pepsi firması zamanında Coca Cola'nın formülünü öğrenmek için, "Coca Cola'nın içinde sağlığa çok zararlı maddeler var" diye dava açmış. Coca Cola ya formülü açıklayacakmış ya da çok yüklü bir tazminat ödeyecekmiş. Tazminat o kadar büyükmüş ki, eğer bu miktarı öderse batma noktasına gelecekmiş. Buna rağmen Coca Cola tazminat ödemeyi tercih edip formülü açıklamamış.
 
-TFP :): Aynı arabaya binmezler
+**TFP :): Aynı arabaya binmezler**
 Coca Cola'nın formülünü yeryüzünde sadece ve sadece 2 kişi biliyormuş. Bu yüzden de asla aynı arabada yahut uçakta seyahat etmezmiş.
 
-barış barutçu: Sadece baharat ve meyve
+**barış barutçu: Sadece baharat ve meyve**
 Coca Cola şişelerinin üzerindeki "muhteviyatı" yazan kısımda "cola özütü" olarak geçen formül, geçtiğimiz aylarda Fransa'da Coca Cola içen birkaç kişinin ölmesi sonrası açıklandı. Formülde sadece baharatlar ve meyve kabukları var! Bir de Coca Cola Amerika'daki içki yasağı sırasında icad edilen eğlencelik bir içecekmiş. İlk başta su ile karıştırılarak içiliyormuş. Ama sonra birinin su yerine soda kullanmasıyla şu anki halini almış.
 
-# Hamburger savaşları
+# Hamburger savaşları (2.5*)
 
 Bu olay Amerika'da yaşanmış. Adamın biri, bir gün öğle tatilinde yemeğini Burger King'de yemiş. Akşam karısı ve çocukları ile beraber sinemaya gittiklerinde ise filmden önce Mc Donalds'da bi'şeyler yemişler. Sonra filmi izleyip eve dönmüşler. Her şey normalmiş. Yatıp uyumuşlar. Derken gece yarısı adam birden fenalaşmış, kan ter içinde uyanmış. "Midem! Midem!" diye yataktan fırlamış ve daha bir adım atamadan iki seksen yere yığılmış.
 
@@ -53,7 +53,7 @@ O günden sonra da, Amerika'daki hamburger restoranlarında çalışan elemanlar
 
 Bu efsaneyi Ozan Cılga gönderdi. Sağolsun, varolsun :)
 
-# Şişede adam varmış
+# Şişede adam varmış  (2.5*)
 
 Coca Cola şişeleme fabrikasında çalışan işçilerden biri, bi gün işe gelmemiş. Arkadaşları merak etmişler. Akşama doğru, hala ortalıkta olmayınca, evini arayıp sormaya karar vermişler. Telefon ettiklerinde, kayıp işçinin karısı iki gözü iki çeşme, eşinden haber alamadığını söylemiş. Hemmen polise haber vermişler. Aranmış-taranmış ama adam bulunamamış.
 
@@ -65,19 +65,19 @@ Bu efsaneyi Sabri Sabancı gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-Çağrı Açıkgöz: Karbondioksit gazı
+**Çağrı Açıkgöz: Karbondioksit gazı**
 Bursa'da "asit" kullanan Coca-Cola, Pepsi ve bir çok da soda fabrikası var. Hemen hepsini dolaştım. Hepsi de "asit"li içecekler üretiyor. Hiç birinde de "asit kazanı" görmedim. Adı geçen "asit" basınçlı ve kapalı tanklarda geliyor. Dolayısıyla kimse içine düşemez. Zaten değil düşecek, içine bakılacak delikleri dahi yok. Aslında üretime asit falan da girmiyor. Asit tankının içinde basınçlı karbondioksit gazı var. Bu gaz içeceğe karıştığında "asit" oluşur. O da kimseyi eritmez.
 
-Y. Alper GÜL: Külliyen uydurma!
+**Y. Alper GÜL: Külliyen uydurma!**
 Bir malzeme bilimi mühedisi olarak bu hikayenin kesinlikle uydurma olduğunu söyleyebilirim. Nedenine gelince; bir arkadaşın da belirttiği gibi asit tanklarının kapağı açık olamaz. Kaldı ki içeceklerin içinde asitin daha sonra oluştuğu da doğrudur ve bunlar insan vücuduna zarar vermez. Sadece kemiklerin ve tulumun kalması kısmı benim yazımın başlığını külliyen olarak yazmama sebep oldu. Diyelim ki harbiden asit tankı var ve bunun pH'ı 1-2 civarında (sağlam bir asit yani) bu durumda ne o amcamın tulumu kalır ne de kemikleri. Efsaneyi uyduran arkadaş bir tek alyans mevzusunda haklı olabilir. O da eğer alyans altın ya da platinse yani dünya üzerinde asit'in tepkimeye giremeyeceği iki sanayi metali.... Bu efsanenin bilimsel çürütülüşü. Ama eğlenmek için gayet hoştu.
 
-Aytuğ Gençoğlu: Efes Pilsen olacaktı
+**Aytuğ Gençoğlu: Efes Pilsen olacaktı**
 Bu olay Coca Cola değil, Efes Pilsen fabrikasında olmuş. Mikrobiyoloji dersine gelen hocamız anlatmıştı. Alyans detayını ise daha önce duymadım. Ama bir kimya mühendisi olara alyansın şişeye kadar varamayacağını tahmin ediyorum.
 
-ömer şahin: Karamel meselesi
+**ömer şahin: Karamel meselesi**
 Coca Cola'da çalışan bi elemanın anlattığına göre Cola'ya konulacak karamel, bir gece önceden özel bi tankın içine serilip bekletiliyormış. Ancak fareler bir yolunu bulup, bu tanka girerek karamelden tatmaya çalışıyorlarmış. Haliyle yapışıp kalan fareler de oluyormuş. Ertesi sabah görevliler karameldeki fare ölülerini temizliyorlarmış. Farelerin kol ve bacakları zaman zaman içeride kalıyormuş taabi.
 
-# Zavallı yaşlı zenci
+# Zavallı yaşlı zenci (3*)
 
 Cadillac arabaları hepimiz biliriz. Çoook ünlü bir dizayn. İşte bu Cadillac'ın baş dizaynırı meslekten elini ayağını çekmeye karar vermiş. Şirketi de ondan (General Motors sanırım) gitmeden son bir tasarım yapmasını istemiş. Adamın 40 yıllık yeteneğine dayanan bir tasarım olacakmış.
 
@@ -89,19 +89,19 @@ Bu efsaneyi Onur Yazıcı gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-murat tekin: O kadar çabuk muuu?
+**murat tekin: O kadar çabuk muuu?**
 Datsun diye Uzakdoğulu bir otomobil üreticisi var. Sanırım artık üretimi durdu. Yıllar önce bu firma ilk otomobil tasarımını tamamlamış. Ama onlar da isim bulamamış. Ünlü bir adam varmış bu işlerde uzman. Hem markaya bir isim bulması, hem de promosyon çalışmalarını yönetmesi için Amerika'dan davet etmişler bu adamı. Adam gelir gelmez, ne kadar zamanı olduğunu öğrenmek için, arabanın ne zaman piyasaya çıkacağını sormuş. Yetkililer de çevirmene, bir isim bulunur bulunmaz çıkacağını iletmesini söylemişler. Amerikalı hayret edip "O kadar çabuk mu?" anlamında "That soon?" demiş. Japonlar da "Datsun, Datsun!" diye sevinmişler. İşte isim böyle ortaya çıkmış.
 
-nevzat aytek: Oyuncak araba
+**nevzat aytek: Oyuncak araba**
 Japonlar İkinci Dünya Savaşı'ndan sonra yeni bir araba yapmışlar. Amerikalılardan izin almaları gerektiğinden, (O sıralar Japonya savaşta yenilmiş, Amerikan ordusu daha Japonya'yı terketmemiş.) General Mc Arthur'e gitmişler. Arabayı göstermişler. "Adını siz koyun" diye teklif etmişler. Mc Arthur arabayı görmüş, dudak bükmüş "Toy auto" (toyoto okunur) demiş. Anlamı "oyuncak araba" demek. Toyota bugün Amerika'da en çok satan arabalardan.
 
-haldun oz: Doyota ailesi
+**haldun oz: Doyota ailesi**
 Toyota ile 'toy auto' kelimelerinin birbirine benzemesi sadece bir tesadüf olsa gerek. Bildiğim kadarıyla Toyota firmasının sahibi Doyota soyadlı bir aile. Fakat Doyota kelimesinin Batı dillerinde okunuşunun biraz kaba olması nedeniyle otomobilin markası Toyota konulmuş.
 
-funda çelik: YU-MA-TU
+**funda çelik: YU-MA-TU**
 Kasetçalar markası olan yu-ma-tu 'nun da yusuf mahmut tuncer diye 3 ortağın isimlerinin baş harflerinden geldiğini söylemişlerdi. Bilmem doğru mu?
 
-# Porsche manyağı
+# Porsche manyağı (3*)
 
 Almanya'da yayınlanan bi reklam anlatmışlardı bana, artık ne kadar doğru bilemem. Reklam zaten sadece 2-3 kere yayınlanabilmiş, rakip firma mahkemeye başvurunca kaldırmak zorunda kalmışlar.
 
@@ -111,22 +111,22 @@ Garajın kapısı açılınca, kahramanımızı son model Porsche'siyle çıkıp
 
 ## Üyeler ne demiş?
 
-Duyulmaz Adam: Garajdaki araba
+**Duyulmaz Adam: Garajdaki araba**
 Bu reklamın benim duyduğum versiyonunda ise adam yine sabah kalkıp Ferrari marka çarşafları açıp, yüzünü Ferrari havlusuna silip, Ferrari kravatlı kırmızı takım elbisesini giydikten sonra, işe gitmek üzere kapıyı açıyodu veee... Tatammmm: Muhteşem bir PORSCHE.
 
-Utkan Atılım: Ben bu reklamı izledim
+**Utkan Atılım: Ben bu reklamı izledim**
 Bu reklamı ben BBC'de bir programda izlemiştim. Konusu davalık olan reklamlardı. Reklam filmi aynen anlatıldığı gibiydi; Porsche sahibi tam gaz yolda giderken yanından "kırmızı" birşey geçiyordu. Daha sonra siyah ekranda sarı ferrari logosu ve şu yazı: "It's Ferrari" . BMW ve Mercedes ile ilgili bir reklam daha vardı ama TRT-2'de Rock Market başlamıştı, kanalı çevirdim :)
 
-Necmi Koldas: Slogan öyle değil
+**Necmi Koldas: Slogan öyle değil**
 Ben de görmüştüm bu reklamı. Yalnız sonunda "It's Ferrari" değil "It was a Ferrari" yazıyodu.
 
-gizem topcuoglu: Bu da güzel bir reklam
+**gizem topcuoglu: Bu da güzel bir reklam**
 Almanya'da 4 yıl önce şu reklamı görmüştüm: Bir Mercedes keskin bir viraja giriyor ve uçuruma yuvarlanıyor. Sonra kamera aşağıda Mercedes'e yaklaşıyor; görüyoruz ki çizik bile yok, pırıl pırıl. Aynı uçurumlu virajı biraz sonra bir BMW dönüyor ve yazı geçiyor: "Ama BMW bu virajı alır..."
 
-Tommy Jones: Havada uçan yaprak
+**Tommy Jones: Havada uçan yaprak**
 Porsche'nin de benzer bir reklamı var: Ekranda önce bomboş bir yol görünür. Yolun ortasında da yerde bir yaprak. (Şu Kanada bayrağındaki yapraktan) Derken "Wrroomm" diye bir ses duyulur. Yol aynı yoldur, çok hafif belli belirsiz bir toz kalkmıştır ama yaprak artık havada uçuyordur. Sonra yazı belirir: "A Porsche has just passed!" (Az önce bir Porsche geçti) 
 
-# Noel baba'nın imajı
+# Noel baba'nın imajı (2.5*)
 
 Noel Baba'nın bugünkü imajını Coca Cola yaratmış. Onun için öyle kırmızı-beyaz giyiniyomuş meğerse.
 
@@ -146,46 +146,46 @@ Eğer Apple Powerbook marka dizüstü bilgisayarların hard diskinden çıkan se
 
 ## Üyeler ne demiş?
 
-Uygar Dogan: Aslında tam tersi
+**Uygar Dogan: Aslında tam tersi**
 Evet, Noel Baba ve Coca Cola arasında bir bağ var ama tam tersi: Coca Cola kırmızı-beyaz renk imajını Noel Baba'dan almıştır ve her Christmas zamanı da reklamlarında Coca Cola içen Noel Baba'yı kullanır. Üzerinde bu resim olan tırlar dolaşır reklamlarda. Bunu MBA'deki marketing dersinde öğrenmiştik. Bi de geyiği ilerletiyorum. Burada (ABD) şöyle bir baktığım bir kitapta, Noel Baba, yani Santa Claus hakkında pek şaşırtıcı bilgiler vardı. Kitabın adı "The Autobiography of Saint Nicholas" Santa Claus'un gerçek adı Saint Nicholas imiş ve 400-500'lü yıllarda şu anki Güney Batı Türkiye'de yaşıyormuş. İnsanlara iyilik edip hediye veren biriymiş falan filan. Ben de bu kitabın yazarının geyikçisiyim.
 
-ayse ulker saygan: Pazarlama dersinde gördük
+**ayse ulker saygan: Pazarlama dersinde gördük**
 Şu Nova marka araba olayı aslında efsane değil ki. Biz onu pazarlama dersinde görmüştük. Örneği de hoca kendi verdi. Biz de şaşırıp "'Allah Allaah'' dediydik.
 
-mehmet trabizi: Pepsi, Ay'a adını yazacakmış
+**mehmet trabizi: Pepsi, Ay'a adını yazacakmış**
 Evet, bu Cola olayı efsane değil, biz de pazarlama dersinde gördük. Bi de, ya Pepsi ya da Coca Cola olucak, tam hatırlamıyorum, Ay'a adını yazıp reklam yapacakmış ama izin vermemişler.
 
-murat şişli: Vosvos Porsche'un akrabası
+**murat şişli: Vosvos Porsche'un akrabası**
 Wolkswagen zaten halk arabası anlamına gelir. Hitler 1933 yılında Almanya'da iktidara geldiginde, bizimkiler gibi herkese iki anahtar vaad eden bir ekonomik program açıklamış. Bu program dahilinde, az benzin yakan bir otomobil için ihale açtırmış. İhaleyi Ferdinand Porsche kazanmış. Yani Porsche'un yaratıcısı. Ayrıca şu anda Wolksvagen firmasının başında olan Ferdinand Piech, bu zatı muhteremin yeğeni oluyor.
 
-alp urenay: Kemikleri kaçırıldı
+**alp urenay: Kemikleri kaçırıldı**
 Noel Baba Hristiyanlık aleminin en büyük azizlerinden biridir. Antalya`nın Demre ilçesinde doğmuş ve ölmüştür. Demre ilçesinde Noel Baba Vakfı ve Noel Baba Kilisesi vardır. Noel Baba'nın kemikleri 1087 yılında İtalyan tacirler tarafından Demre'den Bari'ye götürülmüş. Türkiye kemikleri geri istedi ama henüz bir sonuç elde edilemedi.
 
-kaan calıskan: Şapkası şişenin kapağıdır
+**kaan calıskan: Şapkası şişenin kapağıdır**
 Coca Cola'nın Noel Babayı kulllandığı doğrudur. Üniversitede görmüştük. Coca Cola ilk çıktığı yıllarda anne ve babalar çocuklarına zararlı diye içirmiyorlarmış. Bunun üzerine Coca Colacılar Noel Babayı yaratmış. Şapkası şişenin kapağı, kırmızı giysisi şişenin ambalajı, belindeki kemer ise etiketi çağrıştırdığından Coca Cola evlere Noel Baba sayesinde girebilmiş.
 
-Ebru Gökteke: G.t cola değil culo
+**Ebru Gökteke: G.t cola değil culo**
 No va, İspanyolca'da gerçekten "gitmez" anlamına geliyor. "Yeni" nuevo demek. Cola da g.t anlamına gelmiyor, g.tün İspanyolcası "culo"!
 
-Gerek Siz: Tosbağayı Hitler istedi
+**Gerek Siz: Tosbağayı Hitler istedi**
 Efsane kısmen doğru, çünkü Volkswagen (halk arabası) tosbağa dizaynını, halkın satın alabileceği ucuz bir araba olsun diye Hitler'in isteği üzerine yapmış. 1000 DM'dan (emin değilim) ucuz olması istendiği için de 999 DM'den satışa sunulmuş.
 
-Barış Peker: Nova "gitmez" demektir
+**Barış Peker: Nova "gitmez" demektir**
 Ben İspanyolca bilmem ama iyi derecede Fransızca bilirim. Bu iki dil Latince'den türediği için birbirine çok benzer. "Nova" kelimesi "yeni" anlamına gelebilir ama "No Va" şeklindeki manası gitmezdir. "Va" gitmek fiilinin 3. tekil şahsa göre çekimi, "No" ise olumsuzluk önekidir. "Yok, hayır" gibi. Yani "gitmez" doğrudur. Aydınlatayım dedim.
 
-aydın ger: 99 Başarılı Reklam Kampanyası
+**aydın ger: 99 Başarılı Reklam Kampanyası**
 Noel Baba'nın şu anki imajını Coca Cola'nın yarattığı doğrudur. Yüzyıl başında Noel Baba kürkler giyinen bir şahsiyetken, Coca Cola'nın bir kış kampanyasında "branded" edilmiştir, yani markayı çağrıştıracak yolda şekillendirilmiştir. (O şeklin ne olduğunu biliyorsunuz, kırmızı elbise vs.) Kampanyanın hedefi ise sıcak havada içilen kolanın kışın da tüketilmesini sağlamaktır. Bu hikayeyinin ayrıntılarını "99 Most Succesful Ad Campaigns" adlı kitapta bulabilirsiniz. Benzer bir denemeyi 97 yılında bir İngiliz retail store da yapmış ve Noel Baba'ya kurumsal renkleri olan mavi giysiler giydirmişlerdir. Ancak sonuç "fosss!" Ayrıca Noel Baba, Kaş yakınlarında olan Demrelidir.
 
-sahhan dumlu: Vosvos işgal için üretildi
+**sahhan dumlu: Vosvos işgal için üretildi**
 Volkswagen'i Hitler'in yaptırdığı doğru. Ama nedeni halka ucuz araba sağlamak değil. Vosvosları 2. Dünya Savaşı'nda Rusya seferinde kullanmak için yaptırmış. Zira Volkswagenler'in soğutma sistemi suyla çalışmaz. Dolayısıyla Rusya'nın soğuk steplerinde donma tehlikesi yoktur, arabalar rahatlıkla hareket ederler.
 
-Gokhan Ozcan: Karbüratörsüz araba
+**Gokhan Ozcan: Karbüratörsüz araba**
 Benim duyduğum geyiğe göre ise Hitler karbüratörsüz araba yapılmasını istemiş. Mühendisler de VW'nin kaplumbağasını üretmişler.
 
-f a: Fakir dostu Nail Baba
+**f a: Fakir dostu Nail Baba**
 Noel Baba'nın aslında Antalya'da bir zamanlar yaşamış Nail adında biri olduğunu duymuştum. Fakire, fukaraya hediyeler dağıttığı için halk, ona Nail Baba dermiş. Fakat daha sonra elin gavuru, Nail'i Noel yapıp kendi kültürüne katmış.
 
-# Bedava Hülya Avşar
+# Bedava Hülya Avşar (2.5*)
 
 Bizim gençliğimizde yabancı sigara şimdiki gibi bakkal çakkalda bulunmazdı. Memlekette bi mavi bandrollü malbuş vardı o kadar. Demirperde o zamanlar sımsıkı kapalıydı ama ne hikmetse "bunlar Bulgaristan'da üretiliyomuş, or'dan da bize geliyomuş" geyiği yapılırdı. Sonradan öğrendik Bulgaristan'da silah dahil her türlü kaçakçılığın devlet eliyle, tabii el altından yaptırıldığını.
 
@@ -195,10 +195,10 @@ Bi ara da, "Philip Morris, malbuşun külünü dökmeden sonuna kadar içmeyi ba
 
 ## Üyeler ne demiş?
 
-Alper Secret: Hülya kendi istiyomuş
+**Alper Secret: Hülya kendi istiyomuş**
 1996 yıllarıydı sanırım. Bizim okulda da böyle bir geyik yayılmıştı, "sigaranın külünü düşürmeden içenler Hülya Avşar'la beraber oluyo" diye. Ama bişey farklıydı. Hülya Avşar bundan etkileniyo ve kendi istiyo diye beraber oluyomuş. Yani olayın Marlboro'yla bir ilgisi yok. Bu arada, ben sırf bu yüzden sigaraya başlayan onlarca insandan biri sayılabilirim.
 
-# Marlboro nasıl tutuldu?
+# Marlboro nasıl tutuldu? (3*)
 
 Marlboro firması ilk kurulduğunda işleri çok kötü gidiyomuş. Şirket iflasın eşiğindeyken bi adam gelmiş, "Satışları bir ayda 3 katına çıkarırım ama bunun karşılığında da şirketin yarısına ortak olurum. Yok çıkaramazsam ömrümün sonuna kadar fabrikada bedava tütün sararım" demiş.
 
@@ -208,37 +208,37 @@ Sabah millet uyanınca bi bakmış ki her tarafta boş malbuş kutuları. "Yav, 
 
 ## Üyeler ne demiş?
 
-Ozan Devlen: Reklamcı zekası
+**Ozan Devlen: Reklamcı zekası**
 Bu Marlboro işinin aslı şudur: Marlboro öncelikle bir Amerikan kasabasının ismi kullanılarak piyasaya çıkmış, "Malbrough" ama tutmamış. Daha çok kadınlar içiyormuş ve o dönemde de kadın kullanıcı az olduğu için şirket zarar ediyormuş. Bir çözüm arayan şirket çareyi Amerikanın en ünlü reklamcısına başvurmakta bulmuş. (Adı aklıma gelmiyor) Adam tam bir dahi imiş. 3 şey yapmış. Birincisi, marka adını daha sert ve erkeksi hale getirmiş. İkincisi, hani şu karizmatik bir kovboy vardır. Eskiden her tarafta resmi vardı. Ve onun gibi birkaç karizmatik şahsiyet daha... İşte onları reklam için kullanmış . E tabii, onlar gibi olurum diyenler satışları arttırmış. Üçüncüsü de sizin bahsettiğiniz...
 
-emre albayrak: Lucky Strike sigarası
+**emre albayrak: Lucky Strike sigarası**
 Buna benzer bir geyiği de Lucky Strike sigarası için duymuştum. Güya fabrika bir kundaklanma sonucu yanıyor ve sahipleri iflasın eşiğine geliyor. Derken biri gelip "Ben yardımcı olurum ama bana para vereceksiniz" diyor. "Tamam" diyolar. Adam yanan tütünleri tekrar kağıtlara sarıyor ve ambalajlıyor. Sigara bu haliyle piyasaya çıktığında herkes çok seviyor ve bugüne kadar hep yanmış tütün kullanıyor firma.
 
-onur tufan: İsmi de ondan öyle olmuş
+**onur tufan: İsmi de ondan öyle olmuş**
 Harbiden de Lucky Strike piyasaya sürülmeden birkaç gün önce depolardaki yangın sonucu tütünün yarısı yanmış. Daha ismi de konulmamışmış. Herifler zarar etmemek için, yanan tütünlerle yanmayanları harmanlayıp sürmüşler piyasaya. Sonra tabii deli gibi tutmuş Amerika'da. Bu yüzden ismini Lucky Strike (Şanslı Vurgun) olarak koymuşlar. Gerçekten de bu sigara ülkemizde pek bilinmese de, bilhassa ben çok severim ve Amerika'da Marlboro kadar çok tutulur.
 
-Mehmet Guler: Bütün Yahudileri öldürün
+**Mehmet Guler: Bütün Yahudileri öldürün**
 Ben de üniversitenin yurdunda kalırken, Japon bir arkadaştan duymuştum. Bu Marlboro paketlerinin önünde, arkasında ve altındaki kırmızı beyaz hat ayrımı aslında 3 tane "K" harfi ve bu da (telaffuz yanlış olabilir, özür diliyorum) Klu-Klux-Klan'ın (zenci düşmanı beyazların kurduğu örgüt) baş harfleriymiş. Bir de Marlboro yazısını ters tutup okuduğunuz zaman biraz kasarsanız "Kill All Jews"e (Bütün Yahudileri öldürün) benzeri bir telaffuzla karşılaşıyormuşsunuz. Hakikaten de biraz hayal gücünü de işin içine katınca oluyo valla...
 
-Sabri Sabanci: Paketin altındaki rakam
+**Sabri Sabanci: Paketin altındaki rakam**
 Çocukluğumda duyduğumuz bir habere göre Malboro paketlerinin alt kısmında (kağıdın birleştiği noktada) bir sayı çıkarsa, o sayı kadar beleş sigara kazanılıyormuş. Biz baktığımız her paketin alt kısmında bir sürü harf buluyorduk. Hiç sayı çıkmıyordu. Sonradan öğrendiğime göre o harfler paketin barkodunu gösteriyormuş. Tabi o döneme kadar buna bayağı inanan kişi vardı. En azından bizim tüm mahalleli inanıyordu.
 
-Ebru Gökteke: Şanslı Grev!
+**Ebru Gökteke: Şanslı Grev!**
 Benim duyduğuma göre, Lucky Strike sigarasının başka bir adı varmış. Günün birinde işçiler grev yapıp bütün tütünleri fabrikanın dışına yığmışlar. Bekleyen tütünler sıcakta iyice kurumuş. Sonra fabrika sahibi, yeni işçilerle o tütünlerden sigara yapmış. Yeni sigaralar çok lezzetli olduğu için şirketin adını da Lucky Strike (Şanslı Grev) koymuşlar.
 
-Levent Yalçın: Adını dükten almış
+**Levent Yalçın: Adını dükten almış**
 Amerikalıları bilirsiniz, asalete düşkündürler. Churchill'in annesi de Amerikalıdır, babası ise parasız pulsuz bi İngiliz soylusu. Neyse konuya gelelim. Malbuş piyasaya çıkacağı zamanlarda, Amerikan bulvar gazetelerinde Mallborough (sanırım böyle yazılıyordu) Dükü'yle ilgili bayağı bi haber çıkmış. İnsanların dükün adına olan aşinalığını kullanmak isteyen Philip Morris yetkilileri de, hem dükle hukuki bir sorun çıkmasın, hem de daha kolay telaffuz edilebilsin diye "Marlboro" adını kullanmışlar.
 
-aydın ger: Bunu Leo Burnett yapmış
+**aydın ger: Bunu Leo Burnett yapmış**
 İlk yorum yapan arkadaşın söylediği doğru. Sözü edilen reklamcı da Leo Burnett'tir ve kurduğu ajansın adı aynıdır. Bu ajans hala Marlboro'nın global reklam ajansıdır.
 
-Mehmet Avci: Jointli sigara varmış
+**Mehmet Avci: Jointli sigara varmış**
 Benim Luck Strike hakkında duyduğum ise daha değişik. Rivayete göre Lucky Strike ilk çıktığında, paketteki 20 sigaradan birinin içine joint denen uyuşturucu maddeden konuluyormuş. Tabii 20 sigaranın içinden onu bulan da şanslı vuruşu yapmış oluyormuş. Bilindiği gibi uyuşturucu almak, "vurmakla" eşanlamlıdır Amerika'da.
 
-serhat kavas: Bahsi kazandıran vuruş
+**serhat kavas: Bahsi kazandıran vuruş**
 Bende Lucky Strike ile ilgili Almanya'da şöyle bir efsane varmış. Bana bir Alman arkadaşım anlattı. Adamın biri, bir bezybol maçına yüklü bahis yatırmış. Maçın son vuruşunda bütün parayı götürmüş. kazandığı parayla Lucky Stike'ı (Şanslı Vuruş) kurmuş. 
 
-# Citroen'in amblemi
+# Citroen'in amblemi (2.5*)
 
 Citroen'i kuran herifin kızı arabası devrilince ölmüş. Adam da hırs yapmış, "Ben hiç devrilmiycek bir araba yapıcam" demiş ve pnömatik süspansiyonu icat etmiş. Sonra da arabayı devirecek olana ödül vaadetmiş. Accayip bi paraymış ödül. Memleketin her tarafında millet Citroen'i devircem diye uğraşmış. Sonunda bi çavuş devirmeyi başarmış ama o da adamın kızı gibi ölmüş. Şirketin sahibi böyle bi yarışma açtığı için köpek gibi pişman olmuş. Hemen adamlarına emir vermiş, Citroen'in amblemi çavuşun anısına "ters duran çavuş pırpırı" olmuş.
 
@@ -250,22 +250,22 @@ Londra'da taksi şoförü olmak isteyenler bi yıl boyunca kentin sokaklarında 
 
 ## Üyeler ne demiş?
 
-ayse baykut: Fransızlar yapıyor
+**ayse baykut: Fransızlar yapıyor**
 Londra'da öyle bisikletle falan dolaştırıyolar mı bilemem ama Paris'te taksi şoförü olmak için öyle bi sınav yapıyolarmış ki aklınız durur. Harbiden, her bi noktaya giden en kısa yolu bilmeden o lisansı almak imkansızmış. O yüzden İstanbul'da yaşayan Fransız bir arkadaşım bindiğimiz takside, adam (Beşiktaş'tan bindik) Bebek semtinin yerini bilemeyince apışıp kaldı ve dumurun önde gidenini yaşadı.
 
-Utkan Atılım: Lastiğin bıraktığı iz
+**Utkan Atılım: Lastiğin bıraktığı iz**
 Oto-Haber dergisinde Citroen logosunun, aracın lastiğinin, yolda bıraktığı iz ile ilgili olduğunu okumuştum.
 
-Cem xenon: Devrilmeme olayı doğru
+**Cem xenon: Devrilmeme olayı doğru**
 Citroen araçlarının hidro-pnömatik süspansiyon sayesinde devrilmedikleri doğru. Hatta zamanında 2CV, AMI, DS gibi araçları devirene 7 tane yenisinden veriliyomuş. Ancak amblem olayı Andre Citroen'in bulduğu şevron şeklindeki dişli desenlerinden kaynaklanmaktadır. Andre bu dişli sayesinde para kazanmaya ve sanayileşmeye başlamış. Ancak devrilmeme olayı gerçektir.
 
-# Nane şekerli oral seks
+# Nane şekerli oral seks (2.5*)
 
 Efsanenin kahramanı, İngiltere'nin en ünlü naneli şeker markalarından biri olan "Altoids". Aynı geyiğin versiyonları, bir ağız spreyi markası olan "Binaca" ve ülkemizde de satılan "Close-Up" diş macunları için de yapılıyomuş.
 
 Geyiğe göre, Altoids yedikten sonra yapılan oral seks inanılmaz sonuçlar veriyomuş. Bunu ilk keşfeden de çok sigara içen bi kız olmuş. Kızımız bi gece seksten önce dişlerini fırçalamaya zamanı olmayınca kokuyu gidermesi için ağzına bi'kaç Altoids atmış. Sonuç efsane anlatıcılarına göre "gerçeküstü" olmuş ve kızın erkek arkadaşının çıkardığı sesler bütün apartmanı ayağa kaldırmış. Üstelik bu nane şekerli seks her iki taraf için de geçerliymiş. Yani tersinde de, (anlayın işte, o kadarını söylemeye utanıyom) bu sefer kadının çıkardığı seslerden apartman sakinleri rahatsız oluyomuş. Bu efsaneden sonra Altoids'in satışlarında epeyce artış olmuş ve nane şekeri pazarının lider firması (bu kısmı hakka'ten doğru) durumuna gelmiş. 
 
-# Hamburgerimde HIV var
+# Hamburgerimde HIV var (2*)
 
 1999'un başlarında McDonalds'ın Kadıköy-Altıyol şubesi için çıkan bi geyiğe göre bu şubede hamburgerlere şırınga ile HIV virüsü zerkedilmiş. Bu yüzden yüzlerce insan AIDS olmuş. Bunların büyük kısmı da hastalıklarından habersizmiş hala. Önümüzdeki yıllarda kurban sayısının binlere ulaşması bile mümkünmüş!
 
@@ -277,25 +277,25 @@ Aynı geyik geçmişte de Bakırköy McDonald's için anlatılırdı.. Yöntem o
 
 ## Üyeler ne demiş?
 
-Lombakk Pötürge: HIV çeşnisinden zarar gelmez!
+**Lombakk Pötürge: HIV çeşnisinden zarar gelmez!**
 Yav, bu HIV denen nane kendi kendine bulunamaz, o yüzden şırıngada virüsün kendisi değil, olsa olsa virüslü bi'şi (olasıdır ki kan) olması lazım. Ayrıca; bu virüsü ööle yemeğe felan çeşni olarak koyarsan pişince ya da 3-4 gün bekleyince veya buzdolabına girince, bir metabolizmada yaşamadığı için ölür. Yani ben ketçaba virüs sıksam da biri on gün sonra buzdolabından çıkarıp yese, sanıyorum bişey olmaz.
 
-lisya franco: Mc Donalds değil Burger King
+**lisya franco: Mc Donalds değil Burger King**
 Ben aynı olayı Akmerkez Burger King'de oldu diye duymuştum. Hatta o zamanlar Burger King ketçapları açık olarak verirdi ve içine HIV virüsü enjekte edildiği söylentisi çıkmıştı. Bu olaydan bi süre sonra Burger King de ketçapları kapalı paket olarak vermeye başladılar.
 
-Cihan ALP: İsterseniz kaşıkla yiyin
+**Cihan ALP: İsterseniz kaşıkla yiyin**
 HIV virüsü korkunç olduğu kadar mıymıntı da bi virüstür. Dudakta, ağız mukozasında, diş etinde, boğazda, yemek borusunda, midede yara olmadıkça hiç bişey yapmaz. Yani bu saydığım yerlerde bi yaranız yoksa isterseniz HIV'i kaşık kaşık yutun, bişicik olmaz.
 
-DjQuEeN DjWHO: Bursa'nın HIV'cileri
+**DjQuEeN DjWHO: Bursa'nın HIV'cileri**
 "HIV enjekte ediyorlar, sakın gitmeyin!" geyiği Bursa Pembe Çarşı'daki Burger King ve Çimdik Mantı için de yapılıyordu. Ayrıca Sönmez Plaza'daki McDonald's için de aynı iddialar ortaya atıldı.
 
-Seda Olcay: Burger King tezgahlamış
+**Seda Olcay: Burger King tezgahlamış**
 Geçtiğimiz sene Kadıköy Bahariye Mc Donald's'ta yiyecek ve içeceklerin içine Aidsli kan bulaştırıldığını ve bundan dolayı da kapatıldığını duymuştum. Pek inanamadığım için gidip bakmıştım ve gerçekten de Mc Donald's kapalıydı. Herkes doktoro gidip eliza testi yaptırmıştı, arkadaşlarım da dahil. Daha sonra bu olay örtbas edildi. Bu Aidsli kan hikayesini Burger King'in tezgahladığını söyleyenler de olmuştu.
 
-e k: Çalışan AIDS'liymiş
+**e k: Çalışan AIDS'liymiş**
 Kadıköy'deki McDonalds için ben de aynı şeyi duymuştum. Ama çalışanlardan bi tanesi HIV taşıyomuş, hamburgerlere kendi kanından damlatıyomuş diye anlatılmıştı. Zaten sonradan gerçekten de kapandı orası.
 
-# Örümcek yumurtalı sakız
+# Örümcek yumurtalı sakız (2.5*)
 
 Amerika'da ilk "yumuşak sakız" olarak piyasaya çıkan Bubble Yum sakızını çiğneyen bi kadının bi zaman sonra karnı kocaman şişmiş ve kadın kurtarılamayarak ölmüş. Şüpheli bi ölüm olmasından ötürü kadına otopsi yapılmış. Sonuçta da görülmüş ki, zavallı kadının karın boşluğunda yüzlerce örümcek var ve bunlar kadının iç organlarını yemişler. Meğerse Bubble Yum sakızlarının yumuşaklığı, içine katılan ‘örümcek yumurtaları' ile sağlanıyomuş!
 
@@ -305,7 +305,7 @@ Aptalca görünen bi hikaye ama 1976 yılında "ilk yumuşak sakızı" pazara su
 
 Yine de, Bubble Yum'un hedef kitlesi özellikle çocuklar ve erken gençler ("teenage"in Türkçesi, ben uydurdum) olduğundan, okullarda üretilen efsanelerin ardı arkası kesilmemiş: "Bi kız sabah uyandığında bütün yüzünün örümceklerle kaplı olduğunu görmüş... Dokuz liseli, sakızı çiğnediklerinden bi hafta sonra ölmüş... Bu sakızların yumuşaklığını aslında örümcek yumurtaları değil içine katılan örümcek bacakları veriyomuş... Örümceklerin yumurtadan çıkması mümkün değilmiş ama Bubble Yum kanser yapıyomuş... Mış, miş, muş, müş..." 
 
-# Kimyasal tavuklar
+# Kimyasal tavuklar (2.5*)
 
 Kentucky Fried Chicken uzunca bi süredir sadece KFC kısaltmasını kullanıyo. Ne restoranlarda, ne de reklamlarında artık firmanın adınının açılımı görülmüyor. Peki niye? Çünkü artık KFC'de tavuk yemiyoruz da ondan! Meğer KFC restoranlarında bi kaç yıldır, kimyasal bi süreçle üretilen, tavuk tadında bi madde satılıyomuş müşterilere. Firma yarın öbür gün bu ortaya çıkar, başımız derde girer korkusuyla önlem olsun diye "chicken" kelimesini çıkarmış markasından.
 
@@ -317,40 +317,40 @@ Yaşlı bi kadın KFC'de yemek yerken birden dişlerinin arasında sert bi şey 
 
 ## Üyeler ne demiş?
 
-A R: Dört butlu tavuklar
+**A R: Dört butlu tavuklar**
 KFC ile ilgili benim de duyduğum bir efsane var. Güvenilir kaynaklara göre, (Amcaoglu, dayı kızı, dünürümün görümcesi gibi) KFC tavuklardan daha fazla but çıkması için hayvanların kimyasıyla oynuyormuş ve kafasız, sadece 4 tane bacaktan oluşan bir tavuk ortaya çıkarıyormuş. Böylece bir tavuktan 4 tane but elde ederek kara geçiyorlarmış.
 
-kermith kiremith: Kahve yanığına tazminat
+**kermith kiremith: Kahve yanığına tazminat**
 Fast food restoranları hakkında anlatılan bir diğer efsanede ise; Amerika'da bir Mc Donalds'ta, 75-80 yaşlarında bir kadın üstüne kahve döker. Vücudu birinci derece yanmıştır. Aynı ortamda bulunan bir avukat ona McDonalds'ı dava etmesini söyler ve kadının avukatı olur. Avukat mahkemede, kahvenin olması gerekenden 5-6 derece daha sıcak olduğunu kanıtlar ve McDonalds ı milyonlarca dolar tazminat ödemeye mahkum eder. Bilinçli tüketici her olayda mahkemey başvurmalı, sebep kendi sakarlığı olsa bile!
 
-Emrah YILMAZ: Amerikan hükümeti yasaklamış
+**Emrah YILMAZ: Amerikan hükümeti yasaklamış**
 Olayın aslı şu; (duyduğuma göre) KFC Amerika'da tavuk üretiminde daha büyük olması için tavukların butlarına bir ilaç enjekte ediyormuş. İş böyle olunca da bu yeni tavuklar biyolojide gördüğümüz tavuk sınıflandırmasından çıkıyormuş, yani onlara artık tavuk denemiyormuş. Bundan ötürü de Amerikan hükümeti, Kentucky Fried Chicken'ın "Chicken"ı kullanmasını yasaklamış. Bu şartla KFC'ye izin vermiş.
 
-Özgecan Cesur: Kola şişesindeki fare
+**Özgecan Cesur: Kola şişesindeki fare**
 O kuyruk efsanesi KFC ile ilgili değil. Adamın biri şişe kola içerken kolanın dibindeki fare ölüsünü görüyor ve o anda düşüp bayılıyor. Daha sonra adam ete karşı alerji olduğunu ve hayatı boyunca fasulye ve ekmek diyeti yapmak zorunda kaldığını belirten bir doktor raporu alarak Coca Cola'yı dava ediyor. Coca Cola ise bu olayı örtbas etmek için adama 4 milyon dolar para ödüyor. Gerçi farenin kolanın içine nasıl girdiği muamma ama olsun!
 
-Yağmur Arı: Lütfen dikkatli için
+**Yağmur Arı: Lütfen dikkatli için**
 Ben de Mc Donald's hakkında bi geyik duymuştum. Kadının biri (Tabii ki Amerika'da) kahve almış ve sıcak olduğunu düşünmemiş olsa gerek hızlıca içmiş. Böylece dili yanmış ve kahveyi üstüne dökmüş. Birinci derece yanık olunca tazminat davası açmış. Avukat, Mc Donald'sı kahvenin sıcak olduğunu uyarmamakla suçlamış ve de yüklü bir para kazanmışlar. İşte bu da Mc Donalds'daki kahvelerin veya sıcak çikolata bardaklarının üstünde yazan "Lütfen dikkatli içiniz, sıcaktır" yazısının öyküsü.
 
-Merve Yılmaz: Kolanın içinde et var!
+**Merve Yılmaz: Kolanın içinde et var!**
 Anlatacağım söylenti de 4-5 yıl önce Türkiye'de baya sansasyon yapmıştı. Aslında bu olaya söylenti demek doğru olmaz, yetkililer reddetse bile haber programları ve diğer gruplar tarafından ispatlanmıştı. Coca Cola'da çalışanlardan biri kazara asit oranı yüksek Cola'nın içine düşüyor ve vücudu paramparça oluyor. Dolayısıyla parçalanan etleri kolayı içerken ağzınıza geliyormuş. O süre içinde biz de ağzımıza Cola koymadıydık.
 
-nur sevim: Ketçabın miktarını düşürmüş
+**nur sevim: Ketçabın miktarını düşürmüş**
 Ben de bayağı önce bir söylenti duymuştum şu fast foodlar hakkında. Bir MC Donald's müdürü, hamburgerlere konulan ketçabın miktarını yarı yarıya indirmeyi akıl etmiş ve şirket bundan bilmem kaç milyon dolar kar etmiş!
 
-atma tutma: Bir zeytin deyip geçmeyin
+**atma tutma: Bir zeytin deyip geçmeyin**
 Nur Sevim'in belirttiği olayı asıl yapan bir catering (uçaklarda otobüslerde dağıtılan yiyecekleri hazırlama) şirketi. Bu şirket, uçaklarda verdiği tek bir zeytin tanesini azaltarak müthiş karlar yapmış.
 
-Ebru Gökteke: Ne yazık ki gerçek
+**Ebru Gökteke: Ne yazık ki gerçek**
 KFC ile ilgili hikayede biraz abartı payı var. Ama ne yazık ki, "gelişmiş ülkelerde" tavukların genleriyle oynadıkları doğru. Göğüs tüyleri olmayan, bu yüzden kendini sıcak tutmak için daha çok yemek yiyen ve daha kısa sürede kesilecek hale gelen tavuklarla ilgili birçok makale okudum. Valla amcaoğlum anlatmadı, inanmayanlar Benetton'ın Animals konulu Colors dergisine de bakabilirler. Fast-food zincirleri hayvanlara gaddarca davrandığı için Earth Liberation Front ya da Animal Liberation Front gibi çevreci grupların saldırılarına uğruyor. Zeytin hikayesini gerçekleştiren havayolu şirketi de bildiğim kadarıyla British Airways.
 
-Burcu S: Broyler diye bi'şey
+**Burcu S: Broyler diye bi'şey**
 Mc Donalds, Burger King, KFC ve markettlerde tavuk diye satılan şeyler aslında tavuk değil. Onlara "Broyler" deniliyor. Broyler'ler bitki gibi yetiştiriliyor. 40 günde kesilecek büyüklüğe ve ağırlığa gelen bu yaratıklar, kesilmezse çatlayıp ölüyorlar.
 
-Berlo Bediş: Kafasız tavuklar
+**Berlo Bediş: Kafasız tavuklar**
 Benim de bildiğim, KFC'nin tavukların genleriyle oynayıp (transjenik) kafasız tavuklar ürettiği. Bu teknolojiyle şu an deneylerde kullanılmak üzere kafasız kurbağalar üretiliyo. Böylece bu hayvan zaten yaşamadığı için, bi hayvanı bilimsel deney için öldürmüş olmuyosunuz.
 
-# Playboy'un yıldızları
+# Playboy'un yıldızları (2.5*)
 
 Ne yazık ki ünlü erkek dergisi Playboy şu an Türkiye'de yayınlanmıyo. Bende de numune olsun diye bile bi tanecik yok, onun için tam olarak tarif edemeyeceğim ama sanırım içindekiler sayfasında ve gelecek sayının tanıtıldığı sayfada normalinden farklı bi Playboy logosu varmış. Bu logolardaki fark, "P"nin üzerinde 4-5 tane yıldız olmasıymış. Yalnız bu yıldızların sayısı aynı kalmıyo, her ay değişiyomuş.
 
@@ -362,10 +362,10 @@ Nefis bi sivri zeka geyiği... Doğru olmadığı yüzde yüz aşikar ama çok c
 
 ## Üyeler ne demiş?
 
-Murat AKSIN: Kapaktaki tavşan
+**Murat AKSIN: Kapaktaki tavşan**
 Playboy'un her sayısının kapağında bir tavşan gizlidir, deneylerle sabittir.
 
-# Üzerini silmeden içmeyin
+# Üzerini silmeden içmeyin (2.5*)
 
 Metal kutuda aldığınız içecekleri, kutunun üzerini çok iyi silmeden, hatta yıkamadan kesinlikle içmeyin. Bizim bi komşunun kızı geçen yıl bi kutu Coca Cola içtikten sonra aniden öldü. Meğer hiç akla gelmeyecek bi'şey ölümüne neden olmuş: Kızcağız, kutu kolanın üzerindeki fare idrarından zehirlenmiş.
 
@@ -381,16 +381,16 @@ Noel Baba'nın bugünkü imajını Coca Cola yaratmış. Onun için öyle kırm�
 
 ## Üyeler ne demiş?
 
-Osman Ersen Sümmeoğlu: Cola'da fare kanı
+**Osman Ersen Sümmeoğlu: Cola'da fare kanı**
 Ben de komşumuzdan duymuştum. Coca Cola içmiyorlardı çünkü Cola'nın içinde fare kanı olduğuna inanıyorlardı!
 
-Barbaros Ulutaş: Coca-Cola efsanesinin İtalyancası
+**Barbaros Ulutaş: Coca-Cola efsanesinin İtalyancası**
 Mussolini yıllarında İtalya'da kıyafetlerden buzdolaplarına kadar her şey tektip üretiliyormuş. Pepsi ve Coca-Cola İtalyan pazarına dalmaya çalışıyor. Gelgelelim Coca-Cola'nın hiç mi hiç şansı yok. Zira tektip buzdolaplarının şişe haznesi Coca-Cola şişelerini almıyor; ama Pepsi şişeleri zınk diye oturuyor. E tabii İtalya'nın cehennem sıcağında sıcak kola içmektense herkes Pepsi içiyor. Haa, bi de Coca-Cola'nın 0,200'lük şişelerinin ilk defa Vietnam'da savaşan askerlere gönderildiğini duymuştum. Bu yüzden kadın vücuduna benzetilerek tasarlandığını efsanesine nedense inanasım geliyor.
 
-özkan Dilmen: Açma halkasının muciti
+**özkan Dilmen: Açma halkasının muciti**
 Bütün kutu içeceklerin açma halkalarını icat eden Amerikalı mucit , açılan her kutudan patent ücreti olarak 1 cent alıyormuş. Dünyada günde kaç tane açma halkalı içececek tüketiliyordur. Adamın kazandığı paraya bakın.
 
-# Kapakçık ver sandalye al 
+# Kapakçık ver sandalye al  (2.5*)
 
 Eskiden kutu kolaların "açma halkaları" (hani ucundan tutup çekeriz de kola "fıs"lar ya, o kapakçıklar işte) kutunun üzerinde kalmıyodu biliyosunuz. Gerçi şimdikileri de kısa bi uğraşla yerinden kopartabilirsiniz ama o zamanlar kutuyu açınca kapakçık elimizde kalırdı. İşte önce İstanbul'u, ardından da bütün Türkiye'yi saran "açma halkası" efsanesi de bu aksesuar üzerine kurulmuştu. Söylentiye göre, "onbin kapakçık getiren herkese kola firmaları bir tekerlekli sandalye veriyodu", daha doğrusu "kola kapakçığı toplama organizatörleri"nin deyimiyle, "veriyolarMIŞ".
 
@@ -414,17 +414,17 @@ O günlerde gazetelerde çıkan haberlerden sonra Vakıf derhal yalanlamış tab
 
 ## Üyeler ne demiş?
 
-ferahnaz kemer: Sarı tekel kağıtları
+**ferahnaz kemer: Sarı tekel kağıtları**
 Ben bu efsanenin daha değişik bir versiyonunu biliyorum. Benim duyduğuma göre sigaraların arkasındaki sarı tekel etiketlerini biriktirince tekerlekli sandalye kazanıldığıydı.
 
-Tayfun Gerdan: Sigara jelatinleriyle kabartma harf
+**Tayfun Gerdan: Sigara jelatinleriyle kabartma harf**
 Ben de sigara jelatinlerini atmayıp körler okuluna vermek gerektiğini duymuştum. Körler alfabesindeki o kabartma harflerin yapımında kullanılıyomuş bunlar. Hatta annem ciddi ciddi senelerce topladıydı. Du bi soriim bakiim naaptı o jelatinleri. Kabul eden bi kurum bulabildi mi? İnatçıdır çünkü annem. Yetkili bir kuruma teslim etmeden pes etmez pek.
 
-kamil zilzurna: Tekel fabrikasına geldiler
+**kamil zilzurna: Tekel fabrikasına geldiler**
 Ben bir şehrimizde tekel sigara fabrikasında işçisiyim. Bir gün nizamiye kapısında beklerken bir bayan ve bir çocuk geldi. Ellerinde poşetler vardı. Beni çağırıp "Bunları nereye verebiliriz?" diye sordu. Baktığımda sigaranın aliminyum kağıtlarını gördüm. "Nedir bunlar?" diye sorunca "Abi bunları getirene sakat arabası veriyorlarmış" dediler. Ben de "Bizim fabrikada böyle bir kampanya yok" dedim ve gittiler. Sonra ne yaptıklarını bilmiyorum. Ama halkımızın merhamet duygularıyla oynayanları buradan nefretle kınıyorum.
 
-Cagatay Altan: Sigara kagıdında gümüş var!
+**Cagatay Altan: Sigara kagıdında gümüş var!**
 Bu efsane ile uzaktan ilgili bir başka efsane de sigara kağıtlarında alüminyum değil de gümüş olduğu efsanesiydi. Yıllar once ATV'de yayınlanan Şok Haber programı tarafından uydurulan bu geyiğe inanan bir vatandaş, kağıtlardaki gümüşü elde etmek için belediye ihalesinde tonlarca çöp satın almıştı!
 
-Dark Night: Bizzat topladım
+**Dark Night: Bizzat topladım**
 Ben bu Tekel 2000 paketi toplama kampanyasında bizzat çalışmıştım. Yurttaki bütün arkadaşlar Tekel 2000 topluyordu. Bana getiriyorlardı. Ben de bu paket toplama işini organize eden arkadaşlara teslim ediyordum. İşin garibi, bu söylenti, İstanbul Üniversitesi'ndeki birçok fakülteye de yayılmıştı. Sırf bu yüzden sigarasının markasını değiştirenler bile olmuştu. Sonra günlerden bi gün, bizim fakültede organizasyonu yapan arkadaş, "Tamam, kampanya bitti. 3 tane tekerlekli sandalye aldık" dedi. Hepimiz mutlu olmuştuk. Demek boşuna uğraşmışız. E iyi de, topladığımız o kadar boş paket nereye gitti o zaman?

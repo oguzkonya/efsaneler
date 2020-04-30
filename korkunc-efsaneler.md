@@ -1,4 +1,4 @@
-# Dönmüş, dönmüş, dönmüş...
+# Dönmüş, dönmüş, dönmüş... (2.5*)
 
 Bir lunaparkın gece bekçisi olarak işe başlayan bir vatandaşımız, bir gece çok sıkılmış ve "Bari oyuncaklara binip eğleneyim diye" düşünmüş. Hep binmek istediği ama bir türlü fırsat bulup da binemediği zincirli sandalyeleri gözüne kestirmiş. Hani şu sekolin denilen zincirle yukarıdan bağlı olup dönmeye başlayınca merkez-kaç kuvvetiyle dışarı doğru açılan bi oyuncak vardır ya; işte ona.
 
@@ -12,7 +12,7 @@ Bu efsaneyi Ali Ölmezoğlu gönderdi. Sağolsun, varolsun :)
 
 Bu efsane çeşitli biçimlerde anlatılır. Hatta değişik anlatımlarıyla zaman zaman yazılı basında da yer almıştır. Kim bilir belki bir yerde bir zamanlar gerçekten olmuştur. En bilinen versiyonlarından biri; bekçinin sayısı her anlatılışında değişen arkadaşlarını gece lunaparka beleşten eğlenmeye çağırdığı, arkadaşlarını kıskandığı için zincire kendisinin de binip, şalteri indirdiği şeklindedir. Ölüm nedenleri de anlatıcıya göre değişiyor: kiminde talihsiz kurbanlar kusa kusa ölür, kiminde korkudan ödleri patlar, kiminde de dayanamayıp aşağıya atlarlar. 
 
-# Ben öldüm galiba!
+# Ben öldüm galiba! (3*)
 
 Mezbahadan et taşıyan bir tırın sabahın erken saatlerinde yüklenip bir an önce yola çıkması gerekiyormuş. İşe sabahın kör vakti gelen işçiler, tırı yüklemeye başlamışlar. Alelacele işi bitirmişler. Tırın şoförü arkadaki soğuk hava deposunun kapısı kapatılır kapatılmaz yola çıkmış. Ancak son eti çengele takmaya uğraşan işçinin içeride kaldığını kimse farketmemiş. Uyku sersemi olan işçi de başına gelen korkunç şeyi, ancak tır hareket edince farkedebilmiş. Tır hiç durmadan 8 saat yol alacağından, arkadaşları kaybolduğunu farketmezlerse donarak öleceği kesinmiş.
 
@@ -26,13 +26,13 @@ Bu efsaneyi Ceren Kozan gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-camenae bocuk: Bir başka versiyon
+**camenae bocuk: Bir başka versiyon**
 Bu efsanenin bir başka versiyonu daha var: Adam bir lokomotifin soğutma ünitesinde kalır. Her nasılsa kapı sıkışır ve adam içeride mahsur kalır. Zavallı adam bir kağıda şunları yazar: Karım ve Kızıma ; sizleri çok seviyorum! Karıcım anneme iyi bak. Tanrı herkesi donarak ölmekten korusun... Elveda Bir müddet sonra adamı ünitede donmuş bulurlar. Ama ünite adam içindeyken hiç çalışmamıştır...
 
-Aytac Keskin: Savaşçı
+**Aytac Keskin: Savaşçı**
 Bu hikayeyi Doğan Cüceloğlu'nun "Savaşçı" isimli kitabında okumuştum
 
-# Marmara canavarı
+# Marmara canavarı (2.5*)
 
 Lonch Ness Canavarı dünyanın en popüler canavarlarından biri. Türkiye'nin en popüleri ise Van Gölü Canavarı. Hakkında yüzyıllardan beri yüzlerce hikaye anlatılan ve birçok görgü tanığının olmasına karşın Marmara Canavarı, bu iki rakisinin gölgesinde kalmış. Marmara Canavarı hakkında özellikle Tuzla'da bir çok efsane anlatılır.
 
@@ -46,7 +46,7 @@ Sonradan köyün yaşlılarından yılanın Marmara denizinde yaşayan ve denize
 
 Bu efsaneyi Ersin Kıymaz gönderdi. Sağolsun, varolsun :) 
 
-# Eyvah! Ölü dirildi
+# Eyvah! Ölü dirildi (2.5*)
 
 Etrafında sevilen bir zat-ı muhterem vefat etmiş. Yakınları çok büyük bir cenaze töreni tertip etmiş. Ben diyim 50, siz deyin 100 arabalık bir cenaze konvoyu oluşmuş. Minibüsler, otobüsler kiralanmış, doluşulmuş arabalara. Konvoy yola çıkmış.
 
@@ -56,7 +56,7 @@ Minübüsten sağsalim inen yolcular bir hışım arkalarda bir yerlerde yarı b
 
 Bu efsaneyi Zeynep İpek gönderdi. Sağolsun, varolsun :) 
 
-# Kan damlıyor
+# Kan damlıyor (3.5*)
 
 Amerika'da bir baba ve oğlu beraber bir karavan yolcuğuna çıkmışlar. Alternatif bir tatil yapmayı planlıyorlarmış. Belli bir yol güzergahı çizmedikleri için macera olsun diye anayoldan sapıp, dar bir yola girmişler. Bayağı bir yol gittikten sonra çöl gibi bir yere varmışlar. Etrafta in cin top oynuyormuş. Bu sırada adam benzinlerinin azaldığının farkına varmış. Hemen haritayı açıp en yakın yerleşim yerini aramışlar. Karavan bir süre daha gittikten sonra, benzin bittiği için yolda kalmış.
 
@@ -68,13 +68,13 @@ Bu efsaneyi Ezgi T... gönderdi. Sağolsun, varolsun:)
 
 ## Üyeler ne demiş?
 
-Mutlu Mutlukan: Çeşme'de olmuş
+**Mutlu Mutlukan: Çeşme'de olmuş**
 Ben çok benzer bir olayı, Çeşme'de olmuş diye duymuştum. Kadın arabada kocasını beklerken uyuyakalmış. Ama kadın arabanın tavanına damlayan kan sesiyle değil, kocasının kopmuş kafasının arabanın tepesine düşmesiyle uyanmış. Korktuğu için arabadan çıkamamış. Bunu anlatan, bu olayın gerçek olduğunu ve gazetelerde yayınlandığını söylemişti.
 
-keyser soze: Tales From The Cyrpt
+**keyser soze: Tales From The Cyrpt**
 Bu anlatılan hikaye "Tales From The Crypt" serisinden bir bölüm. Aynı zamanda filmide çevrildi. Filimde 4 genç karanlık bir kasaba yolunda bir trafik kazası geçiriyorlar ve arabadan sağsalim çıkıp, orman içinde ateş yakıp yardım gelinceye kadar birbirlerine korku hikayesi anlatıyorlar. O hikayelerden biri de işte bu hikaye. Bu hikayeyi anlatan kazazede, gidip yardım gelip gelmediğine bakacağını söylüyor. Kaza yaptıkları yere yaklaştığında ambulans ve polis arabalarını görünce yardımın geldiğini anlıyor. Dönüp arkadaşlarına haber veriyor. Hepsi birden koşarak olay yerine geldiklerinde donup kalıyorlar. Çünkü görevliler kendilerinin cesetlerini ceset torbalarına koyuyorlar.
 
-# Kafaları kopmuş
+# Kafaları kopmuş (2.5*)
 
 ngiltere aniden bastıran sisiyle ünlüdür. Yine sisin yoğun olduğu bir gün kadının biri şehirlerarası bir yolda arabasıyla seyahat ediyormuş. Sabahın erken saatleriymiş. Sis yüzünden pür dikkat ve olabildiğince yavaş gidiyormuş. Derken yolun iki tarafında oldukça garip açıyla park etmiş iki araba görmüş. Önce tırsmış. Ama merakına yenik düşmüş ve arabasını biraz ileride güvenli bir yere çekmiş.
 
@@ -90,10 +90,10 @@ Bu efsaneyi Can Özer gönderdi. sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-zeynep ipek: Temel'le Dursun İngiliz olmuş
+**zeynep ipek: Temel'le Dursun İngiliz olmuş**
 Fıkrada bu kadar uzun uzadıya anlatılmamıştı ama yine de çok benziyor. Fıkra şöyle: Polise kaza oldu diye bir ihbar gelmiş. Polisler oraya gidince Temel ile Dursun'un kaza yaptıklarını öğrenmiş. İkisinin de arabalarında çizik yokmuş. Ancak Temel ve Dursun'un ağız burun dağılmış vaziyetteymiş. Polis nasıl oldu bu diye sormuş,Temel de anlatmaya başlamış: "Sormayın komiserim. Hava sisli olduğu için kafamı çıkarmış öyle bakıyordum. Meğer Dursun da karşıdan öyle geliyormuş."
 
-# Yurttaki cinler
+# Yurttaki cinler (3*)
 
 Bu efsane, 80'li yıllarda dilden dile dolaşıyordu. Gazi Kız Öğrenci Yurdu'nda bir grup kız, eğlence olsun diye cin çağırmaya karar vermiş. Bi odaya toplanıp başlamışlar seansa. Cin çağırmadaki en önemli husus da, cini geri göndermekmiş. Kızlarımız cini çağırıp bi güzel eğlenmişler. Hatta dalga falan bile geçmişler, gülmekten yerlere yuvarlananlar olmuş.
 
@@ -103,7 +103,7 @@ Bu esrarengiz gürültüler durmuyomuş. Cin çağıran kızlar, olayı kendi ar
 
 Bu efsaneyi Ümit Baykal gönderdi. Sağolsun, varolsun :) 
 
-# Allahsız Osman
+# Allahsız Osman (2.5*)
 
 İstanbul'da 1800'lü yıllar... O zamanın ünlü kabadayılarından Ustura Kemal ve arkadaşları, Karacaahmet Mezarlığı'nın karşısında bi evin bahçesinde çilingir sofrası kurmuşlar. İçki masası muhabbeti tüm hızıyla devam ederken laf dönüp dolaşıp mezarlık ve ölü konusuna gelmiş. İçinde zırnık Allah korkusu ve vicdan bulunmadığını iddia ettiği için lakabı Allahsız Osman olan bir kabadayı, "Ulan ölü ne ki be?! Sen sağ olanlardan kork, ölüden kimseye zarar gelmez" demiş. Ustura Kemal da muhabbeti koyulaştırmak için, "Ulan Osman, madem ölüden korkmuyosun, gel şunu iyiden iyiye ispatla bize" diye dalga geçmiş.
 
@@ -123,7 +123,7 @@ Bu efsane, çeşitli tarihlerde, değişik insanlara ithaf edilerek de anlatıl�
 
 Sabah adamı o mezarın üzerinde ölü bulmuşlar. Mezara bıçağı saplarken, aynı zamanda paltosunu da toprağa saplamışmış. Talihsiz adam ölünün kendisini tuttuğunu sanarak kalpten gitmiş. 
 
-# Tabutta kim var?
+# Tabutta kim var? (2.5*)
 
 Gencin biri otostop yapıyormuş. İyi kalpli kamyoncunun biri durmuş ama kamyonun ön tarafında yer yokmuş. Gence kasada gitmeyi kabul ederse onu alabileceğini söylemiş. Çocuk atlamış kamyonun arkasına. Giderlerken acayip bir yağmur başlamış. Kamyonun arkasında da boş bir tabut varmış. Islanıp üşümeye başlayan genç, tabutun içine gireyim de bari ıslanmayayım diye düşünmüş.
 
@@ -135,10 +135,10 @@ Bu efsaneyi Miss Witch gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-Hakan Laçinok: Kızılcahamam versiyonu
+**Hakan Laçinok: Kızılcahamam versiyonu**
 Bu efsanenin bir versiyonu da Kızılcahamam'da geçiyor. Söz konusu olan araba cenaze arabası ve tabuta giren kişi ise bir zihinsel özürlü. Bunun dışında olaylar aynen bu efsanede anlatıldığı şekilde cereyan ediyor.
 
-# Kafasını kes, gel
+# Kafasını kes, gel (2*)
 
 Bundan 15 yıl kadar önce, köyün birinde küçük bir kız, kuduz olduğu sanılan bir köpek tarafından ısırılmış. Hükümet tabibi, ilçede başka doktor olmadığından göreve yeni başlayan bir sağlık memurunu, kızı alıp getirmesi için olay mahalline göndermiş. Sağlık memuru köye vardığında, kızın çoktan hakkın rehmetine kavuşmuş olduğunu görünce, hükümet tabibine telefon açıp "Efendim kız ölmüş ne yapayım?" diye sormuş. Karşıdan "Başını kes, gel" yanıtını almış. Tabibin kızı kastettiğini sanan acemi sağlık memuru, köpeğin başını keseceğine kızın başını kesip hükümet tabibliğine götürmüş.
 
@@ -146,7 +146,7 @@ Kızın akrabaları olayı öğrenince ortalık karışmış taabi. Çoluk, çoc
 
 Bu efsaneyi Emin Kuşçu gönderdi. Sağolsun, varolsun :) 
 
-# Kesik kafa
+# Kesik kafa (2*)
 
 Bu olay 10 yıl kadar önce Çapa Tıp Fakültesi'nde olmuş. Tahsin adında bi doktor, ihtisasının 4. yılında yeni bir ameliyat tekniğini etüd etmek için bi kadavraya ihtiyaç duymuş. Çapa'da da kadavralar çok zor elde edilirmiş. Tahsin anatomi kürsüsüne başvurmuş; uzun bir naz-niyazdan sonra tam bir vücut değil ama bir kafa (erkek kafası) vermeye razı olmuşlar.
 
@@ -158,7 +158,7 @@ Kısa bir süre sonra bölüm başkanı, genç doktoru çağırtarak, "Oğlum ne
 
 Bu olayın gerçek olduğuna dair şahitler var. Ancak yıllar yıllar içinde, üstüne sürekli eklemeler yapılarak efsane olmuş. İşin aslını hikayenin kahramanları bilir. Eh, bekleyelim bakalım; onların da yolu bi gün bu siteye düşer elbet :) 
 
-# Buyur teyze?
+# Buyur teyze? (3.5*)
 
 17 Ağustos gecesi Adapazarı'nda yaşlı bi teyze, gece saat 2 buçukta ana caddedeki apartmanlardan birinin zillerini çalmaya başlamış. Kimse kadına kapıyı açmamış, hatta uyandırdıkları için, camı açan bağırıp çağırmış. Üst katlardan bi adam, "Gecenin bu saatinde ne istiyosun teyze?" diye sormuş. Kadın, "Karnım aç oğlum. Bi parça ekmek var mı?" deyince adam, "Yok, yok. Allah Allah, gecenin bu saatinde ne bu yahu?" demiş. Yatağa döndüğünde karısı, yaşlı kadının aç olduğunu öğrenince, "Keşke verseydik" demiş.
 
@@ -168,7 +168,7 @@ O binada oturanlardan sadece yeni evliler ve kocasına, "Keşke yemek verseydik"
 
 Bu efsaneyi Demet XXX gönderdi. Sağolsun, varolsun :) 
 
-# Titanic'i batıran mumya
+# Titanic'i batıran mumya (3*)
 
 Titanic'in sahibi The White Star Line diye bi şirketmiş. Bu firmanın ortaklarından olan Sir James Cole'un babası, vakti zamanında, Mısır'da Ramses mumyasının kazılarına katılan 70 kişiden biriymiş. Bu yüzden ailesiyle birlikte sonsuza dek lanetlenmiş. Mister Cole, kazılardan kısa bi süre sonra diğer arkadaşları gibi esrarengiz bi şekilde hastalanıp ölmüş. Üstelik cenazesini taşıyan gemi de Akdeniz'de kaybolmuş.
 
@@ -182,7 +182,7 @@ James Cole'un babasının katıldığı kazıda mumyası çıkartılan Ramses'in
 
 Bu efsaneyi Alex Mercure gönderdi. Sağolsun, varolsun :) 
 
-# Kazası bol yollar
+# Kazası bol yollar (2*)
 
 İzmir'in oldukça işlek olan İnönü Caddesi'nde kaza eksik olmaz. Fakat bu kazaların nedeni sürücülerin ve yayaların dikkatsizliği değilmiş. 1960'larda yapılan bu cadde, bazı yerlerde mezarlığın üzerinden geçirilmiş.
 Bu efsaneyi İlker Hepkaner gönderdi.
@@ -192,13 +192,13 @@ Bu efsaneyi Batuhan Erginbaş gönderdi.
 
 ## Üyeler ne demiş?
 
-Cem Altel: Sigorta şirketlerinin belalısı
+**Cem Altel: Sigorta şirketlerinin belalısı**
 Paris'te Arc De Truimph meydanı çevresinde de çok kaza olur. Çünkü zaman kaybına sebep olacağı düşünülerek meydana trafik lambası konulmamış. Sigorta şirketleri bu meydanda olan kazalarda zararı kesinlikle karşılamıyorlar.
 
-engin ali: Avcılar-Küçükçekmece yolu
+**engin ali: Avcılar-Küçükçekmece yolu**
 İstanbul'un "kazası bol" yolu, E-5 karayolunun Avcılar'dan Küçükçekmece yönüne giderken lunaparkın önündeki bölümüdür. Bu kazaların sebebi o hizada bir yatırın olmasıymış. Nerden biliyorum? Aynı yerde ben de bir kaza geçirmiştim.
 
-# Kancalı katil
+# Kancalı katil (3*)
 
 Sevgililer sinemada güzel bi film seyrettikten sonra arabalarına binmişler. Erkek sevgilinin libido faaliyetleri süpper olduğundan kız arkadaşını eve bırakmak yerine arabayı şehrin hemen dışındaki ormanlık araziye sürmüş. Kız, "Dur, nolursun, istemiyorum, eve gitmem lazım" dese de çocuk arabayı ağaçların arasında sota bi yere çekmiş. Ve ufak saldırılarla harekete geçmiş. Kız hala, "Ayyy Jim, hayır dedim sana, hayırrr!" diyormuş. Libido sahibi genç de, "Off Janet. Bak ne kadar güzel bir dolunay var. Radyoda mükemmel bir müzik çalıyor ve ikimiz başbaşayız. Bundan daha uygun bi an olabilir mi sevişmek için" diye ikna çalışmaları yapıyomuş.
 
@@ -212,10 +212,10 @@ Bu efsaneyi Emir Aral gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-kum kaka: Siz yalan sanın!
+**kum kaka: Siz yalan sanın!**
 Bu bir efsane değil. Benim en yakın arkadaşımın üniversite arkadaşının başına gelmiş! Amerika'da okuyorken olmuş ama otoyol numarası doğru değil galiba, bir ara kendisine sorarım ben. Vallaha billaha...
 
-# Hadi tavla oynayalım
+# Hadi tavla oynayalım (4*)
 
 Genç bi kız ailesinin evde olmadığı bi akşam arkadaşlarını davet etmiş. Kız kıza yemişler, içmişler, derken içlerinden biri "Hadi cin çağıralım” demiş. Ev sahibi kız da hiç inanmazmış böyle şeylere ama arkadaşlarına ayıp olmasın diye kabul etmiş. Harfler kesilmiş, fincan ortaya konmuş ve elele bir masanın etrafında daire olunup cin çağırma olayına girilmiş. Cin gelmiş gelmesine ama bizim kız hala fincanı arkadaşlarının ittiğini düşünüyomuş. Bi ara fincan hızlı hızlı harflere giderek şöyle demiş: "İçinizde bana inanmayan biri var. Yarın saat 4'te o kişiyle tavla oynamaya geleceğim!” Kızlar feci tırsmıslar ama ev sahibi kız hala dalgasındaymış işin. Saat çok geç olmadığı halde seans hemen bitirilmiş ve kızlar evlerine dağılmış.
 
@@ -227,7 +227,7 @@ Kızla teyzesi güle oynaya tavla oynarken bi ara teyze tuvalete gitmek için ka
 
 Bu efsaneyi Tolga Gum gönderdi. Sağolsun, varolsun. :) 
 
-# Ölümcül saç modası
+# Ölümcül saç modası (2.5*)
 
 1970'lerde, saçları dimdik, yukarıya doğru kalıp gibi yaptırmak moda olmuş. Buna uymak için insanlar saçlarını yaptırıyo, haftalarca da yıkamıyolarmış. Bir liseli kız, okulundaki en yüksek saç yarışmasını kazanmak için saçlarını bu şekilde yaptırmış. Eve dönerken saçları örümcek ağına takılmış ama farketmemiş. Okuldaki yarışmayı kazandıktan sonra saçlarını bi'kaç hafta yıkamamış. E havasını atacak ya, banyoya kafasına bi torba geçirip giriyomuş.
 
@@ -239,7 +239,7 @@ Bu efsaneyi Özgecan Cesur gönderdi. Sağolsun, varolsun :)
 
 Ahtapot, yılan, örümcek... Vücuda yumurta bırakıldıktan sonra üreyen yavrular serisine yeni bi örnek. Vay be! Saçımıza jöle bile süremiycez yağni :) 
 
-# Şeytanla tanışma
+# Şeytanla tanışma (3.5*)
 
 Balıkesir'deki bi kız lisesinde yatakhanenin birinde, kızları gece uyku tutmayınca birbirlerine hikayeler anlatmaya başlamışlar. Bunların çoğu da okullarına ait korkunç olaylarmış. Güya şeytan çok eski zamanlarda burada yaşayan bi ailenin fertlerine dadanmış ve onların ruhlarına giriyomuş. İnanışa göre şeytanın ayakları terstir ya, o insana da şeytan girince doğal olarak ayakları ters dönüyomuş.
 
@@ -259,25 +259,25 @@ Umut Doğsu ise başka bi versiyonunu göndermiş. Onun efsanesi ise kız yurtla
 
 ## Üyeler ne demiş?
 
-hakan ayrım: En zeki öğrenci aklını kaçırmış
+**hakan ayrım: En zeki öğrenci aklını kaçırmış**
 Bunun bir versiyonu da Aksu Anadolu Öğretmen Lisesi'nde yaşanmış. Bu olayda okulun en zeki öğrencisinin aklını yitirdiği söyleniyor. Gerçekten de okulun yatakhanesinin altı antik Perge mezarlığıdır.
 
-Ebru Gökteke: Boğaziçi'nde de yaşanmış!
+**Ebru Gökteke: Boğaziçi'nde de yaşanmış!**
 Boğaziçi Üniversitesi'nde de bu hikayenin başka bir versiyonu anlatılır. Rivayete göre okulun 3. erkek yurdu, eskiden morg olarak kullanılıyormuş. Bir gün yurtta kalan öğrencilerden biri (erkek), gece tuvalete kalkmış. Yandaki lavaboda, yurtta daha önce hiç görmediği tuhaf bir tip görmüş ve nedense gözleri çocuğun ayaklarına takılmış. Canhıraş koşarak merdivenlerden inerken başka bir tipe rastlamış, onun da ayaklarının ters olduğunu görünce gidip intihar etmiş. Güya çocuğun ruhu hala oralarda dolaşırmış.
 
-cüneyt torasan: Ayaklar yer değiştiriyor
+**cüneyt torasan: Ayaklar yer değiştiriyor**
 Bu efsane çok anlatılır fakat benim duyduğum ayakların tersliği 180 derece geriye doğru değil, sağ ayakla sol ayağın yer değiştirmiş olmasıdır. Yoksa şeytan da olsa o halde nasıl yürüsün garip :)
 
-Adem Kılınç: Aynadaki cin
+**Adem Kılınç: Aynadaki cin**
 Ben bu hikayenin çok benzerini duymuştum ama kaynaklar gerçekten doğru. Abim Kocaeli Üniversitesi'nde okuduğu yıllarda kaldığı yurtta oluyor bu olay. Sabah her zamanki saatte kalkan yurttaki öğrencilerden biri banyoya gidiyor. Dişlerini fırçalarken karşısındaki aynada bir şekil belirmeye başlıyor. Tamamen yeşil renge bürünen cisim (sonradan anlaşılıyor "cin" ) iki elini bu öğrenciye uzatıyor ve onu boğazından yakalamaya çalışıyor. Genç o anda şuurunu kaybederek müdür muavinliğine kadar kendini taşıyabiliyor ve hızlı bir şekilde olanları anlatıyor. Kafasını kaldırıp baktığında müdür muavinin de aynadaki cisme benzediğini ve iki kolunu kendisine doğru uzattığını farkediyor. Sonrası malum, genç oracığa yıkılıp kalıyor.
 
-Hüseyin Özbaykan: Şeytan değil cinler
+**Hüseyin Özbaykan: Şeytan değil cinler**
 Bu anlatılanlar bir kere şeytanla ilgili değil. Bunu söyleyim ilk önce. Bu anlatılanlar cinlerdir ve çok değişik şekillerde görünürler. Söylendiği gibi ayakları ve elleri terstir. Ne kadar inanırsınız bilmem ama böyle bi durumla karşılaşırsanız yapmanız gereken sadece FELAK suresini okumanızdır.
 
-fuat layic: Afganistan versiyonu
+**fuat layic: Afganistan versiyonu**
 Benzer bir olayı, Afganistan'dan Pakistan'a göç eden bir arkadaşım anlatmıştı. Pakistan'da adamın biri sabah kalkar, banyo yapması gerektiğini anlar (!), ve sabah namazına yaklaşan bir zamanda hamamın yolunu tutar. Hamamda yıkanır paklanırken bir de bakar ki, etrafındaki şahsların ayakları yuvarlak. Adam soluk soluğa hemen hamamdan çıkar. Çıkarken hamamcıya "İçeride bir sürü yuvarlak ayaklı insan var" der. Hamamcı da, "Yani benim ayaklarım gibi mi?" deyip yuvarlak ayaklarını adama gösterir.
 
-# Üstümü ört baba
+# Üstümü ört baba (3.5*)
 
 Bu olay Bursa'da olmuş. 17 yaşında bi genç kız aniden ölmüş. Aile perişan olmuş ama n'apsınlar, kızı defnetmişler taabi. Aradan bi'kaç gün geçmiş. Baba kızını rüyasında görmüş. Kız sürekli titriyomuş ve "Çok üşüyorum baba. Yalvarırım üstümü ört” diyomuş. Adam sabah kalktığında rüya aklına gelince hüngür hüngür ağlamış. "Gül gibi evladımı kaybettim. Rüyama giricek tabii” diye düşünmüş. Karısının üzülmemesi için de ona hiç bişey söylememiş. Ama ertesi gece, sonraki gece, daha sonraki gece, hep aynı rüya: "Çok üşüyorum baba. N'olur üstümü ört!”
 
@@ -287,13 +287,13 @@ Bu efsaneyi Yelda Cengiz gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-Cansın Taslıoğlu: Ayvalık'ta yaşandı
+**Cansın Taslıoğlu: Ayvalık'ta yaşandı**
 Ayvalık'ta buna benzer bir olay yaşandı. Bir ailenin ortanca kızı ölüyo. Ama defnedildikten bir süre sonra anne kızını rüyasında görüyor. Kız "Annecim çok üşüyorum, çok ıslandım" diyor. Bu olay tıpkı efsanedeki gibi bir süre devam ediyor. Sonunda anne dayanamayarak kızının mezarını ziyarete gidiyor bir de ne görsün, kızın mezarı çökmüş ve bu nedenle her yer su içinde.
 
-birsen girgin: Aynen yaşandı bu
+**birsen girgin: Aynen yaşandı bu**
 Eskişehir'de oturuyorum. Aynı olay burda da olmuştu. Mezarlık bekçisi tutuklanmıştı ve olay gazetelerde de yeralmıştı. Hatta bayağı ayrıntılı bir şekilde, ölülerin üzerine sıcak su dökerek ısıttığı gibi şeyler yazılmıştı. Yıl olarak çok emin değilim ama 1983-85 civarında olabilir. Burada olan olayda fark, rüyayı kızın nişanlısı görmüştü.
 
-# Yardımsever zenci
+# Yardımsever zenci (2.5*)
 
 Olayın geçtiği yer Beyoğlu, Asmalımescit Sokak 50 numaralı evdir, olayın geçtiği tarih ise 1912-1914 yılları arası, olayın kahramanı ise bu yazarın (Giovanni Scognamilla) büyükannesi, adı ile Mariana Filipucci.
 
@@ -313,7 +313,7 @@ Ancak o evde, dört-beş yıl sonra, bir ruh çağırma seansı esnasında üç 
 
 Bu efsaneyi Giovanni Scognamillo'nun "İstanbul Gizemleri” (İstanbul üzerine pek çok efsanenin anlatıldığı eşi bulunmaz bir çalışma) adlı kitabından aynen aldım. Giovanni Üstad, "Peri ya da cin olup olmadığını bilmiyoruz fakat ailemizde anlatılan bir olayı burada nakletmenin ilginç ve yerinde olacağını düşünüyoruz” diyerek anlatıyor bu aile efsanesini. 
 
-# Ormandaki dalgıç
+# Ormandaki dalgıç (2.5*)
 
 Kaliforniya İtfaiyesi yetkilileri, bi orman yangınından sonra ormanın içinde yanmış bi balık adam cesedi bulmuşlar. Şnorkeli, oksijen tüpü, paletleriyle tam donanımlı bi dalgıçmış bu. Çok şaşırmışlar taabi. Polis olayı araştırmaya başlamış. Adamın kimliğini tespit ettikten sonra yangının olduğu gün ormana 20 kilometre uzaklıkta bi mevkide (denizde taabi) dalış yaptığı anlaşılmış. Dalgıçın ormanın ortasına nasıl geldiğini itfaiye yetkililerinden biri çözmüş.
 
@@ -327,19 +327,19 @@ Zaman heba etmek için eşi bulunmaz bi oyun vardır hani: Biri bi cümle söyle
 
 ## Üyeler ne demiş?
 
-umut beyaz: Yunanistan'da oldu
+**umut beyaz: Yunanistan'da oldu**
 Bu olay şehir efsanelerinin gerçekleşebileceğini ispatlar. Yunanistan'daki yangın sırasında aynen yaşandı, ya da ATV ana haber bizimle dalga geçti :)
 
-BEN SEN: Kıyafetler nasıl yanmamış ki?
+**BEN SEN: Kıyafetler nasıl yanmamış ki?**
 Herşeye okey ama unutulan ve olayı tamamen saçmalaştıran nokta şu: Yanmış bir cesedin kıyafetleri (hem de yanması çok kolay olan dalgıç kıyafetleri ) nasıl yanmamış? Şnorkeli bile tahrip olmamış "yanık bir ceset"?
 
-Kutlu Singil: Travma
+**Kutlu Singil: Travma**
 Arkadaşlar ben balıkadam eğitmeniyim. Bu hikayeyi ilk duyduğumda bu nedenle çok ilgimi çekmişti. Olayın Kaliforniya'daki büyük yangında olduğu doğru. Balıkadamın cesedi yanmamış. Balıkadam denizden helikopter tarafından alınınca durumu anlıyor ve tanka tutunuyor. Helikopter suyu boşaltana kadar orada kalmayı başarıyor. Fakat daha fazla dayanamıyor ve suyun boşaltıldığı bölgeye düşüyor. Bu arada su yangını söndürmüş. Yani balıkadamın ölümüne yanması değil, düşme sonucu oluşan travma neden oluyor.
 
-Dark Night: Korkudan ölmüş
+**Dark Night: Korkudan ölmüş**
 Valla ben, farklı bi şekilde ölmüş diye duydum. Söndürme uçağı yangına çok yakın mesafeden uçarak suyu boşaltırken, dalgıç, bi ağacın tepesine takılıp kalıyor. Yani balık adam, ormanın zemininde bulunmamış, ağacın tepesindeymiş ve sanırım korkudan ölmüş.
 
-# Telefon hatlı mezar
+# Telefon hatlı mezar (2*)
 
 Amerika'da yaygın olan bi efsaneye göre, Mary Baker Eddie adında bi dini lider (tarikat gibi bi'şeyin lideriymiş) öldükten sonra cemaatiyle konuşabilmek için telefonuyla birlikte gömülmüş. Böylelikle hem liderliğini devam ettirebiliyomuş, hem de ölüm sonrası hayat hakkında sıcak haberler geçebiliyomuş bizim tarafa.
 
@@ -349,7 +349,7 @@ Bu hikayede, inanmayacaksınız ama, biraz gerçeklik payı var. Yok, öyle anla
 
 O arada kadın ölünce mezar telefon hatlı olmuş taabi. Cenaze töreninden sonra hat kaldırılmış ama kadın öleli 70 yıl olmasına rağmen hala söylenti devam ediyomuş. Üstelik kimileri ara sıra, "Mary Baker Ana dün akşam arayıp şunları şunları anlatmış” diye havadisler de veriyomuş. 
 
-# Bloody Mary demeyin
+# Bloody Mary demeyin (2.5*)
 
 Eğer karanlık bi odada, aynaya bakarak 13 kez "Bloody Mary” (Kanlı Mary) derseniz aynada bi kadın yüzü belirip, yüzünüzü sivri tırnaklarıyla tırmalıyomuş. Söylenen lafın epeyce versiyonları var: Hell Mary, Mary Lou, Mary Worth, Mary Jane vb. 
 
@@ -363,16 +363,16 @@ Hatırlarsanız Candyman (Şeker Adam) filminde de kötü adamı çağırmak iç
 
 ## Üyeler ne demiş?
 
-Cem Altel: Gerçek adı Mary Tudor
+**Cem Altel: Gerçek adı Mary Tudor**
 Bu kadının gerçek adı Mary Tudor. 1550'li yıllarda İngiltere'nin başındaydı. Babası 8. Henry'nin hiç erkek çocuğu olmadığı için halkın da desteğini alarak başa geçmiş. Ancak daha ilk yıllarından itibaren yaptığı zalimlikler ve acımasızlıklarla halk arasında ona "Bloody Mary" (Kanlı Mary) denmiş.
 
-gokcen ataman: Kandurduran
+**gokcen ataman: Kandurduran**
 Benim duyduğuma göre, "Kandurduran" diye bir kız varmış. Annesi de çok psikopatmış. Kızcağızı habire dövüyormuş. Olan olmuş tabii. Döve döve öldürmüş zavallıyı. Kandurduran'ın yüzü, gözü dayak yemekten dağılmış; görünüşü korkunçmuş yani. Efsaneye göre eğer anneniz iyiyse ve gece aynaya bakıp üç kez "Kandurduran" derseniz; aynadan çıkıyor ve sizi döverek öldürüyormuş.
 
-Gizem Köknar: Ben denedim, işte sonucu:
+**Gizem Köknar: Ben denedim, işte sonucu:**
 Ben bu efsaneyi okuduktan sonra gidip aynanın karşısında 13 kez "Bloody Mary" dedim ama hiçbir şey olmadı. İsteyen denesin!
 
-# Lanetli Prenses
+# Lanetli Prenses (2.5*)
 
 İsa'dan 1500 yıl önce yaşayan Mısırlı Prenses Amen-Ra öldükten sonra dönemin geleneklerine uygun olarak mumyalanmış ve tahta bi tabuta konmuş. 1890 yılında 4 zengin İngiliz genci, prensesin mumyasını bi "tarihi eser” kaçakçısından (böyle söylediğimi prenses duymaz inşallah) satın almış. Ve felaketler zinciri de böylelikle başlamış.
 
@@ -390,19 +390,19 @@ Efsane gerçekten de epey uzun. Burada bahsedilen felaketlere bi o kadarını da
 
 ## Üyeler ne demiş?
 
-Ömer Barlas: Tanrı adı alamaz
+**Ömer Barlas: Tanrı adı alamaz**
 Tanrının Eski Mısır'da adı Amon-Ra'dır. Ya da kısaca Ra. Mısır'ın en büyük tanrısı olur kendileri. Güneşin temsilcisidir. Firavunlar ya da kraliçelerin böyle bir ada sahip olması Mısır'da normal değildir. Çünkü tanrının adını kullanmak gibi bir terbiyesizlik yapmazlar.
 
-aylin akcan: Bilim böyle diyor
+**aylin akcan: Bilim böyle diyor**
 Ben mumyaları ve bu tip mezarları açan insanların öldüğüne inanıyorum. Çünkü bunun bir bilimsel açıklaması var. Mumyalama işleminden önce meftanın tüm organları boşaltılıyor. Sadece kalp kalıyor. Kalbin üstüne de bir mısır böceği konuyor. Geri kalan her şey ilaç zaten. Zamanla mumyalanan vücut, kapalı ortamda bakteri üretiyor. Tabutlar ilk açıldığında mikrop ve virüs dolu havayı soluyan insanlar ölüyorlar. Yani lanet filan hikaye. Böyle bir lanet olsaydı; içinde mumya bulunduran tüm müzelerde bu tarz olaylar olurdu. Ben daha iki gün önce öyle bir müzeye gittim.
 
-fikret payzin: O Tutankhamon'du
+**fikret payzin: O Tutankhamon'du**
 Sallama hikaye gördüm de; "Bu kadarı da olmaz" dedim okuyunca. Amon_Ra bir Tanırı'dır ve Mısır'da bu isimde bi prenses asla olmamıştır. Yalnız şunu da söyleyim, "Firavunlar ya da kraliçelerin, Tanrı'nın adına sahip olması Mısır'da normal değildir" yorumu da yanlış. Çünkü firavun Ramses'in babasının adı Seti'dir. Bu ad tanrı Set'ten alınma ya da türetmedir. Hikayede işlenen konuya gelince, söz konusu olay bi şekilde yaşanmıştır. Ancak mumya bir kacakçıdan alınmamıştır. Şimdi adını hatırlayamadığım bir İngiliz lordu ve arkeolog arkadaşları, yıllardır bulunamayan Tutankhamon'un mezarını bulmuş ve o herkesin bildiği ünlü lahti İngiltere'ye getirmiştir. Yani söz konusu olan Tutankhamon'dur. Uyduruk prenses değil. Çeşitli garip ölümlerin yaşandığı da doğru. Gerçekten de mezarın bulunmasından sonra lord ve arkadasları garip şekilde can vermişlerdir. Hatta bu ölümlerin mezarın açılmasıyla havaya karışan bir çeşit küf mikrobundan kaynaklandığı iddia edilmişti.
 
-selin yaman : Belgeselini izledim
+**selin yaman : Belgeselini izledim**
 Bu efsane doğru. Discovery'de bu olayla ilgili bir belgesel seyrettim. Ama bu esrarın bilimsel açıklaması yapılıyordu. Sözde bu prenses "Benim cesedime el süren, benden daha lanetli ölür" demiş. Gerçekten de mezarına giren herkes ölüyormuş. Meğersem yıllar boyu mezara ışık ve hava girmemesi sonucu, öldürücü bir virüs üremiş. Mumyanın bulunduğu ortama giren ve hava soluyanlara geçen bu virüs, bir hafta içinde kurbanın ölümüne yol açıyormuş. Yani bir şekilde prensesin laneti gerçekleşmiş.
 
-# Mezarlıktaki heykel
+# Mezarlıktaki heykel (2.5*)
 
 Genç kızlar korkunç efsanelerin çoğunda başroldeler. İngiltere'de yaygın olan bi hikayede anlatıldığına göre bi grup kız bi gece korkunç hikayeler anlatıyolarmış birbirlerine. Laf dönüp dolaşmış ve gece mezarlığa girip giremeyecekleri tartışmasına dönüşmüş. Kızlardan biri, "Girmek ne ki, sabaha kadar bile otururum ben orada” demiş.
 
@@ -416,10 +416,10 @@ Vasiyetim olsun, ben de mezarımın başına heykel istiyom :)
 
 ## Üyeler ne demiş?
 
-mesut aslan: Katil heykel
+**mesut aslan: Katil heykel**
 Benim duyduğum efsanede olay biraz farklı. Adamın biri gece vakti parkta rastladığı bir kızla konuşmak istemiş. Kız tırsmış tabi başlamış bağırmaya. Adam bakmış kızı susturamıyo, kızı boğmuş (mantığa bak!). Sonra ne yapsam da bu işten sıyrılsam diye düşünmüş. Aklına parlak bir fikir gelmiş. Kızı parktaki bir heykelin kolları arasına sıkıştırıp tüymüş. Tabii heykel, genç bir kızı boğdu diye bir söylenti yayılmış. Ama adam vicdan azabı çekip sonradan suçunu itiraf etmiş.
 
-# Saati or'da duruyomuş
+# Saati or'da duruyomuş (3.5*)
 
 Bi otomobil tamircisi ılık ilkbahar gecelerinden birinde evine giderken yolun kenarında bi araba ve arabanın başında da patlayan lastiği değiştirmeye çalışan iki güzel kız görmüş. Yardım amacıyla kenara yanaşmış. Ama istepne de patlakmış maalesef. Adam, "Bu saatte bunu tamir etmek imkansız. İyisi mi ben sizi evinize bırakayım, yarın bir çaresine bakarız” demiş.
 
@@ -437,16 +437,16 @@ Bu efsane Romanya'da çok yaygınmış. Olayın da Bükreş'te geçtiği rivayet
 
 ## Üyeler ne demiş?
 
-Ömer Barlas: Romanya'da çok yaygın
+**Ömer Barlas: Romanya'da çok yaygın**
 Romanya'da 2 hafta kadar kaldım, bu hikayeyi de yaşlı bir amca anlattı, sağolsun arkadaşlar da İngilizce'ye tercüme etti. Böyle bir olay var mı, yok mu bilmiyorum ama herkes cidden inanıyor gibi oralarda. Saatin markasını nerden biliyorsunuz dediğimde bir cevap veremediler ama olay sanıyorum Romanya'nın geçmişte ve hala çok fakir bir ülke olmasından kaynaklanıyor. Omega onlar için bir şekilde statü sembolü olmuş. Gerçi geçen sene gittiğimde İzmir'den fazla Mercedes ML320 gördüğümü söyleyebilirim. Bir anda zenginleşivermişler gibi :)
 
-Cem xenon: Edirne'de de var
+**Cem xenon: Edirne'de de var**
 Edirne'de bu efsane şöyle anlatılıyor. Taksicinin biri geç saatte kızın birini evine götürüyor. Fakat kızın parası çıkışmıyor ve evden alıp geleceğini söylüyor. Çıkıyor ama geri gelmiyor. Taksici de çalıyor kapıyı, durumu anlatıyor. Fakat anne ve baba kızlarının bilmem kaç sene önce trafik kazasında öldüğünü böyle bir şey olamayacağını söylüyorlar. Taksiciden kızı tarif etmesini istiyorlar. Adam tarif ediyor. Kız aynı kız. Sonra beraberce kızın mezarına gidiyorlar, kızın atkısı mı öyle bir şeyi mezar taşının üzerinde duruyor.
 
-halil orak: Bence reklam
+**halil orak: Bence reklam**
 Bence bu efsaneyi Omega saat yöneticileri uydurtmuştur. Güzel reklam...
 
-# Beynim dışarı akıcak
+# Beynim dışarı akıcak (2.5*)
 
 Olayı Amerikalı bi abinin ağzından dinliyoruz: Bizim bi komşunun akrabası olan Linda başka bi kentte oturan kızkardeşini ziyarete gitmiş. Oradayken bi gün alışverişe çıkmış ve eve dönerken de şehir merkezindeki bi süpermarkete uğramış. Marketin önündeki otoparka arabasını parketmiş. Kapıları kilitlerken hemen yanındaki arabada bi kadının gözleri kapalı vaziyette, elleriyle başının arkasını sıkıca tuttuğunu görmüş. Kadın o halde epeyce tuhaf görünüyomuş.
 
@@ -458,7 +458,7 @@ Kapı açıldığında gerçek ortaya çıkmış. Meğer kadının arka cam tara
 
 ABD manyak seri ve kitle katilleriyle meşhur bi memleket. Gerçi bizde de isteyen çok isterse istediğini bulur ama Amerika'da silahın alasını (hem de alelade dükkkanlarda) bulmak ve tabii satın almak mümkün. Dolayısıyla "Cinnet geçiren öğretmen diskodakilerin üzerine ağır makinalı silahla ateş açtı, 30 kişi ebediyete intikal etti” haberleri artık sıradanlaştı fırsatlar ülkesinde. Bu tür bi efsanenin ortaya çıkışını da bu pencereden 0bakarak anlamak lazım kanımca. 
 
-# Üst kattaki katil
+# Üst kattaki katil (3.5*)
 
 Büyük bahçeli bi villada yaşayan genç bi çift, çocuklarını bakıcıya bırakıp dostlarının verdiği bi partiye gitmiş. Bakıcı kız çocukları yatırdıktan sonra televizyon seyretmeye başlamış. Bi ara telefon çalmış. Kızcağız telefonu açtığında karşısında hırıltılı bi sesle konuşan biri varmış: "Şu an üst katta çocukların başucundayım. Sen de gelsene buraya. Huhahuha!” Kız feci korkmuş haliyle. Ama kendini "Kesin salak bi telefon şakası bu” diye düşünüp sakinleştirmeye çalışmış ve televizyonun sesini sonuna kadar açmış. Telefon tekrar çalmış. Aynı hırıltılı ses yine o histerik kahkahasını attıktan sonra, "Çocukların yanındayım. Hadi sen de gel yukarı” demiş.
 
@@ -472,7 +472,7 @@ Altmışlı yıllarda ortaya çıkan ve hala anlatılan bu efsanenin pek çok ve
 
 Bu efsane, When A Stranger Calls adıyla film de oldu. 1979'da çekilen filmi Fred Walton yönetti. Filmde sapık, telefonda hep aynı soruyu sorar: "Çocukları kontrol ettin mi?” When A Stranger Calls, Empire dergisinin "Sinema tarihinin en korkunç 50 filmi” sıralamasında 47'inciydi. 
 
-# Hayalet otostopçu
+# Hayalet otostopçu (3.5*)
 
 Adamın biri, bi cumartesi gecesi evine dönüyomuş. Birden 15-16 yaşlarında sevimli bi kızın yolun kenarında otostop yaptığını görmüş. Adamın da aynı yaşlarda iki kızı varmış. Hemen arabayı kızın yanına yanaştırmış, "Gece yarısı böyle ıssız bir yerde n'apıyosunuz Allah aşkına? Bu saatte otostop mu yapılır?” demiş. Kız, "Uzun hikaye. Rica etsem beni evime götürür müsünüz? Buraya çok yakın. Bu iyiliğinizi ömür boyu unutmam” diyerek arka koltuğa oturmuş.
 
@@ -486,7 +486,7 @@ ABD'de ellili yıllardan beri anlatılan bu efsanenin pek çok versiyonu varmı�
 
 Folklor uzmanları bu efsanenin aslında Avrupa kökenli olduğunu söylüyor. Gerçi bu versiyonlarda kız kaybolmadan önce mutlaka bi de kehanette bulunurmuş. Bu, onu arabasına alan adamla ilgili olabildiği gibi, daha genel, dünyayı ilgilendiren bi'şey de olabiliyomuş. Bunun da en yaygınlarından biri Hitler için anlatılanıymış.
 
-\2. Dünya Savaşı yıllarında bi Fransız, arabasına tuhaf bi kadın almış. Yolunun üzerinde olmamasına rağmen kadını istediği yere kadar götürmüş. Burası da bi mezarlıkmış. Kadın inerken "sana bir kehanet hediye edeyim” demiş ve ağır ağır konuşarak eklemiş, "Arka koltuğunda bi ölü olacak. Bundan 6 ay sonra da Hitler ölecek” Kadın bunları söyledikten sonra adamın gözlerinin önünde kaybolmuş.
+2\. Dünya Savaşı yıllarında bi Fransız, arabasına tuhaf bi kadın almış. Yolunun üzerinde olmamasına rağmen kadını istediği yere kadar götürmüş. Burası da bi mezarlıkmış. Kadın inerken "sana bir kehanet hediye edeyim” demiş ve ağır ağır konuşarak eklemiş, "Arka koltuğunda bi ölü olacak. Bundan 6 ay sonra da Hitler ölecek” Kadın bunları söyledikten sonra adamın gözlerinin önünde kaybolmuş.
 
 Adam hayret ki aklını oynatmamış ve günlerden bi gün evine giderken yolda bi trafik kazası olduğunu görmüş. Hemen arabasını durdurmuş ve kurbanlardan birini arka koltuğuna yatırmış. Maalesef hastaneye ulaşamadan kazazede can vermiş. (Anlayacağınız arka koltukta bi ölü olmuş) Bundan 6 ay sonra da Hitler Hakkın rahmetine kavuşmuş.
 
@@ -494,13 +494,13 @@ Bu arka koltukta kaybolan kız efsanesinin bizde yansıması arka koltukta anide
 
 ## Üyeler ne demiş?
 
-burak aliefendioğlu: Ertesi gün gidiyor
+**burak aliefendioğlu: Ertesi gün gidiyor**
 Ben bu hikayenin değişik bi versiyonunu hazırlık 2. sınıfın ders kitabında okumuştum. Kitapta adam yine genç bi kızı bizdeki E5 gibi bi yoldan alıyo. Kızı istediği adrese bırakıyo. Ertesi gün arabasına bindiğinde genç kızın mavi polarını unuttuğunu görüyo ve aynı adrese götürüyo. Kapının zilini çalıyo. Yine yaşlı bi kadın açıyo. Sonra adam olayı anlatıyo ve kadın bir anda ağlamaya başlıyo ve onun kızının olduğunu ve aynı polarla adamın onu aldığı yolda otostop çekerken öldüğünü anlatıyor.
 
-önder yüksel: Gelinlikli kız
+**önder yüksel: Gelinlikli kız**
 Valla yanlış olmasın ama, galiba Bodrum'a yakın bi yerde, adamın biri, gece saat 2-3 gibi gelinlik giymiş bi kızın otostop çektiğini görüyo ve duruyo. Kızı ineceği yere kadar götürüyo ve kıza, "Bu vakitte yemek yiyebileceğim bi yer var mı?" diyo. Kız da bi sokak köftecisinin yerini tarif edip iniyo ve koşarak karanlığa karışıyo. Adam kötfeciye gidip oturuyo, köfteyi bitiriyo, sonra parayı öderken, "Yolda gelinlik giymiş bi kız aldım, ne işi vardı acaba?" diyo. Köfteci hiç şaşırmamış bi şekilde adama bakıyo ve "O kız 3 sene önce trafik kazasında öldü. Evlenmek üzereydi. O gün, bugündür yolda geceleri arabaları durdurup kocasına gitmeye çalışıyo ama başaramıyo" diyor.
 
-# Gömlek yine kan içinde
+# Gömlek yine kan içinde (3*)
 
 Bu olay, Marmara Üniversitesi İngiliz Dili ve Edebiyatı Bölümü'nü 1993 yılında bitiren Dilek isimli bi kızın başından geçmiş. (Böyle anlatılıyo, soyadı yok) Dilek bi gün okuldan çıkmış, durakta minibüs bekliyomuş. Yalnız korkunç da yağmur yağıyomuş bu arada. Kızın önüne bi araba yanaşmış. İyi giyimli, temiz yüzlü bi genç, "Yanlış anlamayın n'olur. Ben de yakın zamana kadar öğrenciydim. Islanmayın, gelin ben sizi uygun bi yere kadar bırakayım” demiş. Dilek kız, başta biraz tereddüt etmiş ama çocuğun iyiniyetine inanmış ve arabaya binmiş. Yolda sohbet filan etmişler. Hoşlanmışlar birbirlerinden. Çocuk, "Lütfen izin verin sizi evinize bırakayım. Bakın yağmur da iyice hızlandı” demiş, Dilek kabul etmiş taabi. Sohbet iyice koyulaşmış. Kızın evine gelmişler, bu arada telefon değiş tokuşu yapmayı da ihmal etmemişler.
 
@@ -512,11 +512,11 @@ Artık ağlamaktan bi'tap düştüğünde gömleği yastığının altına koymu
 
 ## Üyeler ne demiş?
 
-murat ünal: Sinir bozucu bir son!
+**murat ünal: Sinir bozucu bir son!**
 Eskiden arkadaş toplantılarında birbirimize korkunç hikayeler anlatıp korkardık. O zamanlardan hatırlıyorum bu hikayeyi. Tamamen aynı sayılır ama sonu değişik. Dilek defalarca yıkar gömleği ama her seferinde kan kalır gömlekte. Fakat en son Dilek gömleği OMO'yla yıkadığında kan lekesinden eser kalmaz. Gerçekten rahatsız edici bir hikayenin böyle bir sonu olması ne hayal kırıcı değil mi? Böyle bitirilirdi efsane.
 
-ert yıl: Eblek eblek bakarlar
+**ert yıl: Eblek eblek bakarlar**
 Evet, gömlek ertesi sabah gene kan içindedir ve kız panikle çocuğun annesini arar. "Nasıl böyle birşey olduğunu" ve "ne yapması" gerektiğini sorar. Annesi de gayet rahat bir şekilde ''Çamaşırdır kirlenir, Omo'yla temizlenir'' der. İğrenç bir geyiktir. Anlattıktan sonra çevredeki insanların sana eblek eblek bakmasıyla sona erer.
 
-engin gündüz: Bu kadar da değil
+**engin gündüz: Bu kadar da değil**
 Ortaokulda arkadaşlara anlatırdım, ama bu kadar değil bu, devamı var. Kız gömleği analiz ettirmek için bir labaratuvara götürür. Normal bir kumaş olduğunu ve yıkanınca lekelerin çıkması gerektiğini söylerler. Bunu yeterli bulmayan kıza arkadaşları bir medyum veya hoca tavsiye eder. Gömlekle beraber, verilen adrese giden kız hocayla görüşür. Gömleği evire çevire inceleyen hoca kıza döner, "Sen bunu neyle yıkadın kızım?" der. "Çok kirliydi, çamaşır suyuna bastım" diye yanıtlar kız. Hoca kıza şevkatli bir bakışla der ki, "Kızım bu gömleği ne kadar çamaşır suyuna batırırsan batır bu kanı çıkaramazsın. Bunun çaresi o değil. (Burada annem yaşlı gözlerle "Tabii evladım sevgi bu" diyordu) Bunun çaresi 'Deo parfümlü ALO'dur' onunla yıka, kirden-lekeden eser kalmaz" (Burada annem beni evde terlikle kovalıyordu :)

@@ -1,4 +1,4 @@
-# Çocukları kim kaçırıyor?
+# Çocukları kim kaçırıyor? (2*)
 
 Amerika'da bir dönem, çocuklarının kaybolduğuna dair ailelerden gelen ihbar telefonlarının sayısında büyük bir artış görülmüş. Üstelik şikayetçi aileler, kısa bi süre sonra yine telefon açıp, "Gerek kalmadı, çocuğumuzu bulduk" diyorlarmış. Bu durum FBI'ın dikkatini çekmiş tabii. Ajanlar bu tip telefonları izlemeye almışlar. Yine böyle bir ihbar telefonu gelir gelmez, hemmen olay mahaline ulaşmışlar.
 
@@ -8,7 +8,7 @@ FBI ajanlarına, üç yaşındaki oğullarının ön bahçede oynarken ortadan k
 
 Aile çocuklarının bulunduğuna çok sevinmiş. Ancak olanlara bir anlam verememişler. Olay sonradan aydınlanmış. Meğer ABD, uyuşturucuya karşı yaptığı mücadelede çok başarılı olunca, uyuşturucu tacirleri düşen satışlara karşı yeni bir taktik geliştirmiş. Amerika'da her kentte küçük çeteler kurmuşlar. Bu çetelerin görevi çocuk kaçırmakmış. Çocukları kaçırıp çocuklara uyuşturucuları veriyorlarmış. Sonra da onları on-onbeş dakika sonra, kendi elleriyle evlerine teslim ediyorlar ve arkalarında iz bırakmıyorlarmış. Mafyanın hesabı, çocukların büyüyünce potansiyel müşteri olmasıymış. Ama FBI işe el koyunca baltayı taşa vurmuşlar tabii.
 
-# Küçük Japon kızı
+# Küçük Japon kızı (3*)
 
 Japonya'ya atom bombası atıldığında 2 yaşında olan bir kız, 12 yaşına geldiğinde maruz kaldığı radyasyon nedeniyle kansere yakalanmış. Savaşta öksüz ve yetim kalan zavallıcık hastaneye yatırılmış. Ama durumu ümitsizmiş.
 
@@ -22,13 +22,13 @@ Bu efsaneyi Emre Uçar gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-Kerem Bener: Sadako
+**Kerem Bener: Sadako**
 Bu hikayeyle ilgili bir de kitap var. Bize okulda İngilizcesini okutmuşlardı. Ddı "Sadako and the Thousuand Paper Cranes" di.
 
-Salvia Triloba: Hepsini ağaca asmışlar
+**Salvia Triloba: Hepsini ağaca asmışlar**
 Küçükken televizyonda -sanırım bir belgeseldi- seyretmiştim bu olayı. Tüm o kağıt kuşlar, büyük bir meydanda kocaman bir ağacın üzerine asılmıştı.
 
-# Sakallı bebek doğmuş
+# Sakallı bebek doğmuş (2.5*)
 
 Bir gazetenin çıkardığı geyiklere en iyi örnektir: Seksenlerin başıydı. Tan gazetesinde çıkan bi haberden sonra yayıldı efsane. Sakallı bebeğin temsili bi illüstrasyonun da eksik olmadığı haberde özetle deniyordu ki: "Konya'da sakallı bir bebek doğdu. Dile gelen bebek ayın bilmemkaçında (bu tarih Kurban bayramının ilk gününe denk geliyordu) KIYAMET KOPACAK dedi."
 
@@ -38,19 +38,19 @@ Geri sayım nefesler tutularak devam etti. Şu an tuşlara takır tukur vuruyor 
 
 ## Üyeler ne demiş?
 
-lisya franco: Sıcaklık 60 derece!
+**lisya franco: Sıcaklık 60 derece!**
 Bu asparagas haberle ilgili bi ayrıntı da, kıyamet kopmasından evvelki gün hava sıcaklığının 60 dereceye çıkacak olmasıydı.
 
-Dinçer Okçu: Annemin sözünden çıkmamıştım
+**Dinçer Okçu: Annemin sözünden çıkmamıştım**
 Ben bu haberi Sabah'ta çıktı diye hatırlıyorum. Sürmanşette de sakallı bir bebek çizmişlerdi. O haber çıktıktan sonra 3 gün boyunca annem ne dediyse yaptım. Ekmek almaya falan yolluyordu beni. "Ya gitmesem mi acaba" diye kısa bir tereddüt yaşıyordum ama sonra "Ne me lazım" deyip gidiyordum. 3 günden sonra dayanamadım, "Aman be kopacaksa kopsun, bana ne" olup, annem "Evladım ekmek al" dediğinde "Bana ne almıycam" dedim. Ne günlerdi onlar. Yaş daha 6-7...
 
-aslı hattatoğlu: Bulvar haberi
+**aslı hattatoğlu: Bulvar haberi**
 Olayı hatırlıyorum; Bulvar gazetesinde yayınlanmıştı. Güya muhabir fotoğrafını çekmiş ama tab etmek için makineyı açtığında filmleri yanmış bulmuş. Bebeği doğuran kadın doğum esnasında ölmüş. "Bebek konuştuğunda annemi siz öldürdünüz beni de öldüreceksiniz. Ama kıyamet koptuğunda ben yinede sizi affedeceğim" demiş.
 
-Osman Ersen Sümmeoğlu: 7 Ağustos 1987
+**Osman Ersen Sümmeoğlu: 7 Ağustos 1987**
 Tarihini hiç unutamadığım bir olaydır bu. Tüm memleket heyecanla bekliyordu. Sene 1987 idi ve Kurban bayramının 3. günü yani 7 Ağustos'ta kıyamet kopacak diye yazmıştı Tan. Tarihi niye mi çok iyi hatırlıyorum? Çünkü 8 Ağustos'ta benim sünnetim vardı ve olamayacağım diye çok korkmuştum.
 
-# Hugo'nun küfürbazı
+# Hugo'nun küfürbazı (3*)
 
 Hani bi zamanlar Kanal 6'da canlı yayınlanan, çocuklar için Hugo diye bi yarışma programı vardı. Programa telefonla katılan çocuklar bi bilgisayar oyununu oynuyo, oyunun kahramanı Hugo'yu telefonun tuşlarıyla yönetiyolardı. Yarışmayı da Tolga Garipoğlu adında bi genç sunuyodu.
 
@@ -60,32 +60,32 @@ Homurdanmış ama küfür bayağı bayağı anlaşılmış. Canlı yayın, Tolga
 
 ## Üyeler ne demiş?
 
-Alper Tuncer: Bu olay gerçek!
+**Alper Tuncer: Bu olay gerçek!**
 Bu, efsane değil gerçek bi olaydır. Çocuk o lafı ettiğinde sunucunun yüzünü görmeniz gerekirdi :) Dumur olmuştu. Ben de ekranın karşısında kopmuştum.
 
-Altay Aktürk: Vallahi gördüm!
+**Altay Aktürk: Vallahi gördüm!**
 Hakkaten buna benzer bir olay oldu ve inanması şu anda bana bile zor geliyor ama seyrettim. Eminim program kopyalarından ulaşılabilir. Veya sunucu çocuğa sormak yeter.
 
-H.Gökhan Asok: Bu gerçek aslında!
+**H.Gökhan Asok: Bu gerçek aslında!**
 Küçük çocuğun tam olarak bu küfürü edip etmediğini hatırlamıyorum ama bu olay oldu. Sunucu hiç birşey demeden programa devam etti. Ciddiyim, gördüm. Araştırırsanız eminim doğru olduğu anlaşılır.
 
-figen k.: Yıldo'nun başına gelen
+**figen k.: Yıldo'nun başına gelen**
 Benzer bir başka olaya da bizzat ben şahit oldum. Bir zamanlar meşhur Yıldo vardı hani gece program yapan. Onu Almanya'dan bir bayan aradı ve bayağı uzun konuştular. Hatta bayan Yıldo ile eşini de konuşturdu. Ama bütün konuşma boyunca bayan da, eşi de Yıldo'ya öyle iltifat ettiler ki, adam eridi aktı yani. Sonunda artık vedalaştılar, Yıldo sıradaki klibi anons etti, kadın son bir kaç iltifat daha etti, Yıldo artık ağzı kulaklarında. Göz döndürmesi çok meşhurdu ya onun... "Sizin için bi de gözlerimi döndüreyim mi?" dedi, kahkaha attı ve kadının sesi duyuldu: "Senin gözüne s...çiim" ve telefon kapandı. Ben koptum. Yıldo kaldı bi kaç saniye felç vaziyette ve klip girdi. :)
 
-kerim tunga: Sihirli sopayı napardınız?
+**kerim tunga: Sihirli sopayı napardınız?**
 O çocuk gerçekten küfür etti de asıl bi mahalli TV'de daha trajiği yaşandı: Bayan sunucu günün konusunu belirlemişti. (O zamanlar bu tür programlarda modaydı) Konu, "Elinizde sihirli çubuk olsa ne yapardınız?" Birisi aradı, "Nereden" falan muhabbetinden sonra sıra günün konusuna geldi ve kız soruyu sordu. Cevap dumura uğratan cinstenti: "Senin g..ne sokardım!"
 
-Gürkan Çakır: Bu da Kral TV'de olmuştu
+**Gürkan Çakır: Bu da Kral TV'de olmuştu**
 Bundan yıllar önce, Kral TV yeni açılmıştı o zamanlar. Atakan adında bi DJ vardı. Hala da var sanırım. Telefonla canlı bağlantı yapardı programına. Arayanlar "Nasılsın Atakan?" diye sorduklarında "Bomba gibiyim!" derdi. Yine bir gün biri aradı ve "Nasılsın?" diye sordu, bizim VJ tam klasik cevabını vermişti ki, aynı anda telefondan "Bomba g.tünde patlasın" şeklinde bi cevap geldi. O anda yayın kesildi zaten. Ben bunu canlı seyretmedim, arkadaşım tesadüfen kasede çekmisti or'da seyrettim.
 
-Erdem OLUR: Ayrıntılarıyla hatırlıyorum
+**Erdem OLUR: Ayrıntılarıyla hatırlıyorum**
 Hakikaten bu Hugo olayı gerçek. Ben o ara 12-13 yaşındaydım. Diyarbakır'dan benim yaşlarımda bi çocuk aramıştı. Çocuğun telefonu bizimkiler gibi tuşlu değil, eski usul, çevirmeliydi. Onun için çevirirken bazen geç kalıyodu. Önce ilk hatasını yaptı. (3 hakkı var herkesin) İkinci seferde "Sola çeviriyorum ama dönmüyo" filan diye bağırıyodu. Üçüncü hatayı da yapınca "Tolga abi dönmüyo yaa" gibi bişeyler söyledi. Tolga da, "Olabilir. Önemli olan yarışmaktı. Birlikte olduk" diyerek klasik sorusunu sordu: "Hugo'ya söylemek istediğin bişey var mı?" Çocuk 2-3 saniye durdu. Sonra "Hugo'nun ... koyiyim" dedi ve güm diye kapattı telefonu. Tolga bi'şey diyemedi. Bu olaydan sonra Kanal 6'ya ceza verildi ve Hugo da 2 ay sonra yayından. 2 gün gülmüştüm yemin ediyorum...
 
-Ulaş Çingil: Bu da Kral'dan
+**Ulaş Çingil: Bu da Kral'dan**
 Kral TV'nin sarışın, prezentabl vj'lerinden biri programında "Bana ne kadar değer biçersiniz" veya "Benle evlenmek için ne kadar başlık parası verirsiniz" gibisinden bir soru soruyor. Paso "Milyarlarımı, evlerimi, varımı yoğumu, herşeyimi..." filan gibi uçuk cevaplar yağıyor. Orta yaş civarı bir amca arıyo ve 15 - 16 milyon civarı bi rakam telafuz ediyor. Vj bu gözle görülür değer kaybına şaşırmış bir şekilde soruyor nedenini. Amca duruma açıklık getiriyor: "Sen aşağı yukarı 50 - 55 kilo çekersin. Ee.. kaşarın kilosuda 300 bin lira civarında".
 
 
-# Vicdansız bakıcılar
+# Vicdansız bakıcılar (2.5*)
 
 ABD'de yirmili yıllardan beri anlatılan bi efsane: Kimi (vicdansız) bakıcılar, bebekler çok ağladığında ya da bebeği erkenden uyutup televizyonun başına kurulmak istediğinde bebelerin kafalarını havagazı fırınının içine sokup uyumalarını sağlıyolarmış.
 
@@ -103,10 +103,10 @@ Kadınlar adet dönemlerinde seri katilden bile daha tehlikeli olurlarmış.
 
 ## Üyeler ne demiş?
 
-BEYZA ÇAĞLAR: Kuyruklu yalan
+**BEYZA ÇAĞLAR: Kuyruklu yalan**
 Bi kere kadınlar denize girince adet kanları akmaz. Su aşağıdan baskı yapar ve bir damla bile akıntı olmaz. Köpekbalığı da olmayan kanın kokusunu alamaz.
 
-# Tren yolunun hayaletleri
+# Tren yolunun hayaletleri (3.5*)
 
 Bi arkadaşım küçük bi kasabada öğretmen olan kuzenini ziyarete gitmiş. Bi ara arabayla dolaşmaya çıkmışlar. Tren yolundan geçerken arkadaşım yolun kenarında devrik vagonlar olduğunu görünce niye or'da durduklarını sormuş. Kuzeni, "Bu çok tirajik bir hikaye. Bunlar aslında katil vagonlar. Gel yakından bak istersen" demiş. Tren saati olmadığı için arabayı rayların üzerinde bırakıp vagonların yanına gitmişler. Arkadaşın kuzeninin anlattığına göre, geçen yıl tam orada bi okul otobüsü arıza yapmış ve rayların üzerinde kalakalmış. Bu sırada büyük bi hızla gelen tren okul otobüsüne çarpmış. Talihsiz kazada bütün çocuklar hayatını kaybetmiş.
 
@@ -114,10 +114,10 @@ Arkadaşımla kuzeni vagonları incelerlerken bi tedirginlik hissedip hafiften k
 
 ## Üyeler ne demiş?
 
-deniz Sayım: TV'de seyrettim
+**deniz Sayım: TV'de seyrettim**
 Bu olayı, yabancı bir TV kanalında yayınlanan "ister inan, ister inanma" tarzı bir programda izlemiştim. Orada da üzerine pudra döktükleri bir arabayı tren yoluna bırakmışlardı. Sonra arabanın üzerinde küçük küçük parmak izleri belirmişti.
 
-# Canavar düdüğüyle seks
+# Canavar düdüğüyle seks (2*)
 
 Kanada'da yetkililer bir kasabada doğumların aniden arttığını farketmiş. Aslında normalde burası çok sakin, hatta Kanada standartlarına göre düşük nüfus artış hızı olan bi yermiş. Kasabada ardı ardına başlayan doğumlar sonrasında devlet hastanesi yükselen talebi karşılayabilmek için doğumevindeki personelini iki katına çıkartmak zorunda kalmış. Ortada gerçekten de garip bir durum varmış yani. Amaaa, konu araştırıldığında altından çok enteresan bir hikaye çıkmış.
 
@@ -125,7 +125,7 @@ Bi gece, bi grup sarhoş gencin arabası tam tren yolu geçidinde (i)stop etmiş
 
 Bu trenin makinisti Jacques adında bir adammış. Adamcağız olaydan ötürü çok üzülmüş taabi. Ölenler için elinden bi'şey gelmiyomuş ama en azından bundan sonra olabilecek bi kazayı önlemek için bi çözüm bulmuş kendince: Kasabaya yaklaştığı an trenin canavar düdüğünü öttürmeye başlıyomuş. Kasabadan iyice uzaklaşıncaya kadar da bi saniye olsun susturmuyomuş. Makiniz abi her sabah ama her sabah beş buçukta yapıyomuş bunu!.. Ee, or'da nüfüz patlamasın da ner'de patlasın di'mi güzel abim? 
 
-# Bana fotoğraf gönderin
+# Bana fotoğraf gönderin (2.5*)
 
 1983 yılında, İngiltere'de yaşanmış bu olay. Röntgen teknisyeni olan babasını sık sık ziyarete giden bi çocuk bu yoldan aldığı radyoaktif ışınlar sonucunda kanser olmuş. Talihsiz çocuğun annesi olaydan kocasını sorumlu tuttuğu için uyurken onun boğazını kesmiş sonra da kafasını havagazı fırınına sokarak kendi hayatına son vermiş.
 
@@ -137,7 +137,7 @@ Sonra doğal olarak mektuptaki adrese mutlu aile fotoğrafları gelmeye başlam�
 
 Bu tür efsaneler hak'katen basında sık sık kendine yer buluyo. Genelde de ölümcül bi hastalığın pençesinde olan -ki çoğunlukla lösemidir- bi çocuk, dünyanın her tarafındaki insanlardan ona bi şey (kartpostal, pul, kartvizit vb.) göndermesini ister. Yapılan araştırmalarda bu türden çağrıların büyük kısmının "fake" olduğu ortaya çıkmış. Özellikle de mail yoluyla gelenlerin yüzde 99'u eğlence olsun, posta kutumuz ıvır-zıvır dolsun niyetiyle yapılıyomuş. 
 
-# Çıkartmalardaki LSD
+# Çıkartmalardaki LSD (2.5*)
 
 Amerika'da uyuşturucu bağımlısı bi nesil yetiştirip pazarın boyutlarını genişletmek isteyen vicdansız zehir tacirleri, yapışkan çıkartmaların boyalarına LSD emdirerek piyasaya sürüyomuş. Bunları vücudunun herhangi bi yerine yapıştıran çocuk da bi süre sonra uyuşturucu bağımlısı oluyomuş haliyle.
 
@@ -151,10 +151,10 @@ Bu efsane yetmişli yıllarda elden ele dolaşan, posta kutularına bırakılan 
 
 ## Üyeler ne demiş?
 
-. .: Kokulu silgi
+**. .: Kokulu silgi**
 Ben ilkokuldayken böyle şeyler söylenmişti. Ama yapışkan değil de, kokulu silgilerin bağımlılık yaptığı ve çocukları uyuşturucuya alıştırdığı anlatılıyordu.
 
-# Gitti paracıklar
+# Gitti paracıklar (2.5*)
 
 Ankara'da görevli bir mutemet astsubay bankaya gidip taburdaki askerlerin maaşlarını çekmiş. Biliyosunuz, askerlere ödenen rakamlar çok düşüktür ama bunlar bir araya gelince hayli yüklü bir meblağ olur. Adam bankadan çıktıktan sonra evi yolunun üzerinde olduğundan şoförüne eve uğrayacağını söylemiş. Niyeti rahat rahat bi tuvalete girmekmiş adamcağızın.
 
@@ -164,10 +164,10 @@ Silah sesini duyan karısı koşarak odaya gelmiş. Zavallı kadın oğlunun ve 
 
 ## Üyeler ne demiş?
 
-mırrad tymtym: Stanislavski'nin kitabında var
+**mırrad tymtym: Stanislavski'nin kitabında var**
 Bu hikaye çook ünlü bi yazarın, çoook ünlü bir oyununda geçmektedir. Stanislavski'nin "Bir Rol Yaratmak" adlı kitabında da oyunculara, çalışma amacıyla bu mizanseni oynamaları önerilmektedir.
 
-# Bebeleri kim kaçırıyo?
+# Bebeleri kim kaçırıyo? (2.5*)
 
 Çingeneler çocukları evinin önünden kaçırır, sonra da kolunu bacağını kırıp, aman Allah korusun, (tahta aranır, bulunur, vurulur) ucube gibi yapıyolarmış. Ondan sonra da sokaklarda sefil gibi dilendiriliyomuş çocuklar. Öz evladını görsen tanıyamazmışın bile. Ööle bi çeşit yaparlarmış garipleri.
 

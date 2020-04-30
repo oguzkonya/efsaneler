@@ -1,4 +1,4 @@
-# Kedi testi
+# Kedi testi (2.5*)
 	
 Yerli bir otomobil üreticisi firmamızın üst düzey yetkilisi, Japonya'da otomobiller banttan çıkınca kedi testi adında bir testen geçtiğini duymuş. Japonya'da otomobiller bu testi geçerse satışa çıkıyormuş. Güya Japonlar tamamen biten otomobilin içine akşamdan bir kedi koyuyorlarmış. Gece boyu arabada kapalı kalan kedi, sabah geldiklerinde yaşıyorsa izolasyonda sorun var diye arabayı tekrar incelemeye alıyorlarmış. Kedi ölüyse otomobilin tamamen başarılı bir üretim olduğuna karar veriyorlarmış.
 
@@ -6,7 +6,7 @@ Bu üst düzey yetkili kendi fabrikasında aynı testi uygulamaya karar vermiş.
 
 Bu efsaneyi Tacettin Aydın gönderdi. Sağolsun, varolsun :) 
 
-# Gıcır gıcır İmpala
+# Gıcır gıcır İmpala (2.5*)
 
 Ümraniye Sanayi Sitesi'nde, Amerikan otomobilleriyle ilgilenen Namık Usta'nın bana anlattığı bi olay bu. 1968 yılının sonları... AP hükümetinin başında bulunan Süleyman Demirel, seçim çalışmaları için Anadolu gezisine çıkacakmış. Demirel'in amacı köy köy, kasaba kasaba gezip, öncelikle ağaları yanına çekmekmiş. Maksut adındaki bi ağa, bu geziyi önceden haber almış. Üstelik kendi kasabası da güzergahın üzerindeymiş.
 
@@ -22,7 +22,7 @@ Namık Usta hemen, ağanın oğlundan fiyat biçmesini istemiş. Maksut Ağa'nı
 
 Bu efsaneyi Hannan Yedilioğlu gönderdi. Sağolsun, varolsun :) 
 
-# Bakır cant kapakları
+# Bakır cant kapakları (2*)
 
 Adamın tekinin siyah bir Mercedes'i varmış. Arabanın gıcır gıcır boyası, deri döşemeleri, aksesuarları falan tammış. Yani kız gibi arabaymış anlayacanız. Ama siyah Mercedes'in en güzel yanı bakır kakma, özel yapım cant kapaklarıymış. Adam cant kapaklarına ayrı bir özen gösterirmiş. Herkese bu bakır cant kapaklarının dünyada eşi benzerinin olmadığını söyler dururmuş.
 
@@ -34,7 +34,7 @@ Birden aklı başına gelmiş. Hemmen telefona sarılıp, İstanbul'daki hırsı
 
 Bu efsaneyi Tugrul Akın gönderdi. Sağolsun, varolsun :) 
 
-# Tramvay oyunu
+# Tramvay oyunu (2.5*)
 
 İstanbul'da 3 fırlama arkadaş Beyoğlu'nda tramvaya binmiş. Bunların elleri kitaplarla doluymuş. Zar zor birer tutacağa tutunmuşlar. O arada tramvay epeyce kalabalıklaşmış. İçlerinden biri telaşlı bi şekilde üstünü başına aramaya başlamış. Bütün ceplerini karıştırıyomuş. Bi yandan da, "Allah, Allaaaahh, ner'de bu yaaa. Bak şimdi" filan gibi şeyler söylüyomuş.
 
@@ -44,10 +44,10 @@ Bu efsaneyi İlker Akdeniz gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-Metin Solmaz: Biz bunu hep yapardık
+**Metin Solmaz: Biz bunu hep yapardık**
 Bahsi geçen olayı, Ankara'da, muhtelif belediye otobüslerinde ben yahut yakın arkadaşlarım, en az 20 kere yaptık. Başarı oranı da yaklaşık %40 filan idi... Hunharca eğlenirdik. Şimdi acayip sıkıcı birşeymiş meğer diyorum, -ki muhtemelen yaşlılıktandır.
 
-# Anadol'a bak be
+# Anadol'a bak be (3.5*)
 
 TEM'de bi Ferrari son sürat gidiyomuş. İleride yolun sağında bi Anadol görmüş. Yanında da yaşlı bi adamcağız çaresiz gözlerle yoldan geçenlere bakıyomuş. Ferrarici, adama acıyıp durmuş, "Amca gel seni İstanbul'a götüreyim, yarın bi tamirci getirip arabanı yaptırırsın" demiş. Yaşlı amca, "Oğlum madem bi iyilik yapıyosun tam yap. Benim bütün mal varlığım bu. Bur'da bırakırsam çalarlar arabayı. Sen beni İstanbul'a kadar çekiver" demiş. Ferrarinin şoförü de iyi bi adammış. "Okey amcacım. O zaman arabanı arkaya bağlayalım" demiş ve öylece, önde Ferrari, arkada Anadol TEM'de gitmeye başlamışlar.
 
@@ -61,7 +61,7 @@ Bu efsaneyi Sedat Kasrat gönderdi. Sağolsun, varolsun :)
 
 Daha çok fıkra gibi anlatılan bi hikaye bu. Ama kimilerine göre Özal zamanında ilk otoyollar açılıp da ithalatın serbest bırakılmasının ardından Adapazarı civarında yaşanmış. Anadol üzerine dönen geyik çok zaten de, en komiklerinden biri bu olsa gerek. 
 
-# Diğer arabam Porsche
+# Diğer arabam Porsche (2.5*)
 
 İstanbul'un tanınmış üniversitelerinden birinde, bi öğrenci okula Volkswagen Polo marka arabasıyla gidip geliyomuş. Arabanın arka camında koca koca harflerle "Benim diğer arabam Porsche" yazıyomuş. Görenler kahkaha atıyomuş taabi. Kimse sallamıyomuş, "Afferim lenn" filan deyip dalga geçiyolarmış. Çocuk hiç umursamıyomuş bunları. Alltan alttan gülüp, "Hey Allaaam" anlamında kafasını sallıyomuş.
 
@@ -75,19 +75,19 @@ Bu efsane eskiden "Çocuk okula eski püskü bi tosbağayla geliyomuş" diye anl
 
 ## Üyeler ne demiş?
 
-ethem böcük: Yazı İngilizceymiş
+**ethem böcük: Yazı İngilizceymiş**
 Efsanenin benim bildiğim hali tema olarak aynı yalnız bir-iki ufak fark var: Bir kere küçük araba Fiat BIS, diğer araba ise Ferrari. Okul olarak Bilkent Üniversitesi. Camdaki yazı da İngilizceymiş.
 
-Ceylan a: Bilkentliler iyi bilir
+**Ceylan a: Bilkentliler iyi bilir**
 Bu efsane bizim üniversitede de çok anlatılır. Ama kahraman araba Polo değil Serçe'dir. Gerisi aynı. Ben uzunca bi süre inanmıştım.
 
-Selim Sevinç: Kuşlar giremez!
+**Selim Sevinç: Kuşlar giremez!**
 Bu Porsche olayına yakın bi Bilkent geyiği duymuştum. Bilkent üniversitesinin otoparkında "Kuşlar giremez" (Kuş serisi arabalar yani. Şahin, Serçe, Kartal vs.) yazıyomuş. Oranın zenginlerinden biri de, bi gün sırf bunu yazanı bozmak için kantinde, "Bugün okula kuşla geldim" falan diye muhabbet etmiş. Tabii kulaktan kulağa yayılmış bu sözler. Aracı merak edenler gruplar halinde otoparka gitmişler. Bi de ne görsünler! Otoparkta cillop gibi, gıcır gıcır bir THUNDERBIRD! (Hani şu Grease filminde de John Travolta'nın hayalini kurduğu araç) Eee, onlar da kuşmuş tabii, bu da...
 
-serdar kazak: Helikopterle gelmek yasak
+**serdar kazak: Helikopterle gelmek yasak**
 Ben de Bilkent Üniversitesi'ne başlamadan önce benzer şeyler duymuştum. Birisi çok ilginçti. Güya, ögrenci el kitabında, "Okula helikopterle gelmek yasaktır" diye bir kural yazarmış. Ben bu söylentiye uzun süre inanmıştım.
 
-# Radardan kurtulun
+# Radardan kurtulun (2.5*)
 
 Yol kenarındaki beyaz Reno geyiği malumunuz, epey bi yaygındır. O arabada hız kontrolü yapan bi cihaz vardır, ki radar deriz biz ona ve yakalandık mı bi kaç kilometre ilerideki polis çevirmesinde memurun, "172 kilometreyle hızla giderken radara girmişsiniz, evraklarınız lütfen" cümlesiyle kuzu kuzu torpido gözüne uzanıp ruhsatı aramaya başlarız. Bu radar olayının çıktığı günlerde peydahlanan iki efsane var ki, biri hala ilk zamanlardaki kadar yaygın.
 
@@ -99,49 +99,49 @@ Bu efsaneyi Özgür Ekşi gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-umut doğdu: Alkol muayenesine bozuk para
+**umut doğdu: Alkol muayenesine bozuk para**
 Başka bir trafik numarası daha vardır. Alkol alınca dilin altına madeni para koyup alkol ölçme cihazı öyle üflenir. Böylece kişinin alkollü olduğu kesinlikle tesbit edilemez(MİŞ).
 
-HUSEYIN GURCAN: Masraf etmeyin
+**HUSEYIN GURCAN: Masraf etmeyin**
 Bu radar tesbit cihazlarının da birkaç değişik tipi, markası varmış. Bazıları radarı tesbit falan etmiyor, boşuna masraf ettiriyormuş. O yüzden en doğrusu hız limitine uymak .
 
-Ceyhun Celik: CD'ler de kurtarıyomuş
+**Ceyhun Celik: CD'ler de kurtarıyomuş**
 Bir zamanlar da CD'lerin de radarı etkilediği ve radardan kurtardığı efsanesi yaygındı. Herkesin dikiz aynasında bi cd asılıydı. Bi gün minibüse bindim, bi yere gitçem, ön koltuğa oturdum. Bi baktım Magirus'un dikiz aynasinda Office 97 CD'si ki o zamanlar değeri 250 $ falan. Şoföre "Abi bu ne işe yarıyo?" dedim. "Radardan kurtarıyo abicim" dedi. "Peki" dedim ben de...
 
-Ömer Barlas: Radar nasıl çalışır?
+**Ömer Barlas: Radar nasıl çalışır?**
 Bu konu biraz bizim insanımızın teknolojiyi incelemek yerine, klasik "Türk" gibi davranarak sağdan soldan duyduklarıyla ya da kurcalayarak bir şeyler yapmaya çalışmasından kaynaklanıyor. Bilmeyenler için olayın mantığı şu: Radar sizin arabanıza bir radyo sinyali gönderiyor, bunun sizin arabanızdan yansıyarak geri dönmesini bekliyor, arada geçen süreden de şıp diye sizin süratinizi hesaplayarak ceza yemenizi sağlıyor. Yeni radarlar ise radyo sinyali yerine lazer kullanıyor, ışığın yansımasını kullanıyor yani. Peki radardan nasıl kaçarız? Bunun da çok basit 2 yöntemi var: 1. Yavaş gidersiniz :) 2. Bir adet radar tespit cihazı edinirsiniz. İnternet üzerinde birkaç sitede bulunuyor. Yalnız şimdiden uyarayım. Türkiye'de kullanılması yasal DEĞİL. Bu cihazla birlikte yakalandığınız takdirde ehliyetinize el koyulabilir ve bayağı miktarlı bir para cezasına çarptırılabilirsiniz.
 
-Ali Kaymaz: Silecekler de işe yarar
+**Ali Kaymaz: Silecekler de işe yarar**
 Bir başka efsane de, beyaz Renault görünce sileceklerin en üst devirde çalıştırılması gerektiğidir. Silecekler radar dalgalarını dağıttığı için elinizi kolunuzu sallayarak geçebilirsiniz.
 
-axun axun: Benim radar tesbit cihazım var
+**axun axun: Benim radar tesbit cihazım var**
 Ben radar tespit eden cihazdan kullanıyom. Ama sabit olmadığı için konsoldan saga sola kayıyor(du). Şimdi sabitledim ve çok eğleniyorum ama bu arada trafik canavarı olmak söz konusu ayrı mevzu! Hızlı arkadaslara tavsiye ederim. Amerika ya da Kanada'da tanıdığınız varsa Radio Shack mağazalarından edinebilirsiniz. 30-40 $ kadar bişey.
 
-ebrar elbasan: Polisleri nasıl atlattık?
+**ebrar elbasan: Polisleri nasıl atlattık?**
 İki arkadaşımla Ayvalık'tan dönerken başıma geldi. Arkadaşlarımın ikisi de 50 promili geçmişti. Nitekim beyaz Reno'ya sobelendik. Memur, direksyondaki arkadaşıma "Alkol var mı genç?" diye sordu. Arkadaş "Yok abi' dedi. Tipi kaymış, kurtuluşu yok. Cihaza üflendi. 20 promil alkol çıktı. İmkansız! Zira arkadaşın temiz 1 küçük rakısı var. Tabii yolumuza devam ettik. İşin sırrı, 7 yaşından beri şan ve ses eğitimi alan bu arkadaşın, diyaframdan üfleme usulü ile alkol ölçen zımbırtıyı atlatmış olması. Peki, marifet bu mu şimdi? Hayır, kesinlikle değil.
 
-Le Chuck: Minibüsçülerin CD aldığı yer
+**Le Chuck: Minibüsçülerin CD aldığı yer**
 Ben de yaklaşık 2 sene önce minibüsün birinde win98 orjinal cd'si görmüştüm. Yanımda yeni aldığım Chip dergisi vardı. Onun 2 cd'sini verip beyamcadan Windows 98'i almıştım. Bi de genelde minibusçü esnafının takıldığı ve CD'lerin 50,000 TL olduğu yerin adresini öğrenmiştim. Tüm MSDN'i 2 milyona, hem de çantasıyla almıştım or'dan. Komik ülkem benim.
 
-Tayfun Gerdan: İki hata
+**Tayfun Gerdan: İki hata**
 Yorumlarda iki nokta hatalı. Birincisi trafik polisinin kullandığı radar adı verilen alet dalga gönderip geri alarak çalışmaz. Bu alet yolun belli bir kısmını kesit olarak gözler ve bir taraftan giren bir objenin kesitin öbür tarafından çikişi arasındaki süreyi tespit ederek sürati hesaplar. Fotofinish cihazi gibi. 100 metrelik bir alani iki saniyede geçerseniz saatteki hızınız 180 km'dir. İkincisi, radara yakalanmayan uçakların sırrı boyasında değil kaportasında. Tamam boyası da özeldir ama esas numara yüzeyde. Milyarlarca birbirine doğru açılı çokgenden oluşan bir düzlem düşünün. Bu çokgenler gelen ışığı bir diğerine yansıtıyorlar ve ışık geri yansımıyor. Radar da nesneyi algılayamıyor. Ama ilk açıklama nedeniyle arabanızın kaportasını bu şekilde yapsanız bile trafik radarına yakalanırsınız.
 
-burcu güray: "Vitesi boşa atma" işe yarıyor
+**burcu güray: "Vitesi boşa atma" işe yarıyor**
 İzmir ile İstanbul arasında çok sayıda radar olur. Babam radarların yerini artık ezbere bilir durumda, çünkü her yaz Çeşme'ye gideriz. Babam radarı önceden farkeder ve vitesi boşa atar. Bu, her zaman işimize yaramıştır.
 
-Berkan Özadalı: CD olayı Almanya'da çıkmış
+**Berkan Özadalı: CD olayı Almanya'da çıkmış**
 Benim duyduğum kadarıyla bu aynaya CD takma olayı, ilk olarak Almanya'da başlamış. Or'da yollarda, daha doğrusu otobanlarda bulunan otomatik radarlar, hız limitini aşan bi araç gördüklerinde onun fotoğrafını çekiyor ve bunu direkt trafik birimine gönderiyormuş. Bunun üzerine biri, "Ne yapsam da benim arabamın plakası bu fotoğrafta çıkmasa?" diye düşünmüş ve bir yansıma oyunuyla bunun üstesinden gelebileceğini bulmuş. Aynasına taktığı CD'nin çoğu zaman güneş ışığını yansıtması ve parlamasıyla bu işin üstesinden gelmiş. Bu olay da gurbetçilerimiz vasıtasıyla bize gelmiş olmalı.
 
-Fevzi Ç. Kıvanç: Zincir radarı engelliyormuş
+**Fevzi Ç. Kıvanç: Zincir radarı engelliyormuş**
 Bir aralar da, benzin yüklü tankerlerin radara yakalanmadığı söylentisi çıkmıştı. Nedeni de, "Tankerlerin arkasından sallanan zincirmiş" deniyordu. O dönemde, her üç arabanın birinden zincir sallanıyordu.
 
-Eray .: Üç yolu var
+**Eray .: Üç yolu var**
 Benim bildiğim kadarıyla radarlar etrafa dalga gönderiyor ve bu dalgalar da metallere çarparak geri dönüyor. Radardan kurtulmanın üç çaresi var: 1. Yavaş gitmek 2. Arabayı plastik veya odundan yaptırmak 3. Radara yakalanmayan hayalet uçakların boyasıyla arabayı boyamak. Bu boya dalgaları geri göndermeyip yutuyormuş. Yalnız, İnternet'teki bir havacılık sitesinde okuduğuma göre, bu boyayla bir jet boyamak 18 milyon dolara mal oluyormuş. Parası olup da hız yapmak isteyen varsa, bi teneke alsın o boyalardan :)
 
-A B: Uyarıyorum!
+**A B: Uyarıyorum!**
 Bu uyarım, radar tespit cihazından bahseden arkadaşlara. Zira Türk polisi radar tespit cihazlarına da çözüm bulmuş. Bendeki, en güvenli modellerden biri olmasına rağmen, radar otosundaki karşı tespit cihazı yüzünden yakalandım. Takribi 200 milyon cezası var. Üstelik mahkemeye filan çıkıyorsunuz. Aman dikkat!
 
-# Bacağımı kaşıyom ama?
+# Bacağımı kaşıyom ama? (2.5*)
 
 Genç bi arkadaş dolmuşta gidiyomuş. Bi yandan da gazetesini okuyomuş keyifle. O sırada bacağı kaşınmış. Elini atıp bacağını kaşımaya başlamış tabiyatıyla. Ama hart hart kaşımasına rağmen hiç bi’şey hissetmiyomuş. “Allah, Allaaah, noluyo lan?” diye düşünürken birden, deminden beri yanında oturan adamın bacağını kaşıdığını farketmiş. Adam da hiç sesini çıkarmayıp, yukarılara filan bakıyomuş. Bizimki müsait bir yerde inmiş hemen.
 
@@ -153,10 +153,10 @@ Bizim bi arkadaş Caddebostan’dan Kadıköy’e gitmek üzere dolmuşa binmiş
 
 ## Üyeler ne demiş?
 
-serap budak: Maçka olayı Star'da oldu
+**serap budak: Maçka olayı Star'da oldu**
 Şu Maçka'ya giden şoför efsanesi doğru. Çünkü ben de basındanım, iyi biliyorum. Fakat o şoför Atv'nin değil, Star'ın şoförüdür. Bu olay bi kaç ay önce yaşandı, çok da konuşuldu.
 
-# Valla fil hortumu
+# Valla fil hortumu (2.5*)
 
 İspanyol bi kadın dertli bi arkadaşına eğlensin diye “Gel seni hayvanat bahçesine götüreyim” demiş. Arkadaşı da arabasının üstüne tir tir titreyen bi şahıs. Ama gerçekten de değişik bi’şeyler yapmaya ihtiyacı olduğundan teklifi kabul etmiş. Hayvanat bahçesi de hani şu içinde arabayla gezilen, hayvanların serbestçe dolaştığı türden bi yermiş.
 
@@ -168,7 +168,7 @@ Hayvanat bahçesinden çıktıktan bi’kaç kilometre sonra yolda zincirleme bi
 
 Bizim iki kız en masum halleriyle yollarına devam etmişler taabi. Ama tam polisin önünden geçerlerken, “Hop hop, nereye bakalım” diye durdurulmuşlar. Bunlar da, “Ama biz kazayı karışmadık ki” demişler doğal olarak. Bunun üzerine polis filin hortumla vurup göçerttiği yeri göstererek, “Peki bu ne o zaman?” diye sormuş. Kızlar, “Eee, inanmayacaksınız ama filin hortumu” demişler. Bu konuşma esnasında polis yeterince alkol kokusu da almış zaten, “Taabi taabi, fil hortumu. Geçin bakalım şöyle sağa” demiş. İspanyolca’da “la trompa” hem sarhoş hem de fil hortumu anlamında kullanılıyomuş. Bizim iki kız alkollü kaza yapmaktan işlem görmüşler o akşam. 
 
-# Arada ne kalmış?
+# Arada ne kalmış? (2.5*)
 
 Şehirlerarası bi otobanda çok hızlı giden iki boş tır müthiş bi şekilde çarpışmış. Hatalı sollamadan meydana gelen bu kazada tırlar resmen birbirine kaynamış. Yani o kadar şiddetli bi çarpışmaymış.
 
@@ -178,7 +178,7 @@ Trafik ekipleri sürücüleri ölen iki tırı zorlukla bi araba mezarlığına 
 
 Bu efsaneyi 1997’de bi web sitesinde okudum. Ama folklor uzmanları kaynağının Volkswagen’in tosbağayı (onlar “böceği” diyolar) ilk çıkardığı yıllara dayandığını söylüyo. 
 
-# Ölü kokulu araba
+# Ölü kokulu araba (2.5*)
 
 Amerikalı bi arkadaşın ağzından: Bana bu olayı büyükannem anlatmıştı. Büyükbabamla evleneli henüz bi’kaç ay olmuşken bi sabah gazetede bi ilan görmüş bizimki: “165 dolara sahibinden satılık Ford marka araba.” Gözlerine inanamamış tabii. Sene 1935. Öyle araba almak filan şimdiki gibi kolay değil. Herkesin hayallerini süsleyen bi’şeymiş otomobil. Akşam ilanı büyükbabama göstermiş. Hatta kızmış büyükbabam, “Akşamı bekleyeceğine gidip alsaydın ya arabayı. Satılmıştır şimdi o” demiş. Gerçi akıllarına yazım hatası olabileceği de gelmiş ama yine de sabah ilandaki adrese gidip şanslarını denemek istemişler.
 
@@ -194,10 +194,10 @@ Sonraki günlerde kadın dara düşünce arabayı satmak istemiş fakat arabanı
 
 ## Üyeler ne demiş?
 
-nahit menteşe: Stephen King'in romanı
+**nahit menteşe: Stephen King'in romanı**
 Stephen King'in de yaklaşık olarak bu konuyu işleyen bir romanı var. Sanırım o da, kitabının konusunu bu efsaneden almış. Bu da efsanenin ne kadar yaygın olduğunu gösteriyor. Romanın adı Christine. Kitapta bir adam (Arnie) eski ama pahalı olması gereken bir arabayı ucuz bir fiyata düşürüp alıyor. Ama arabada garip bir koku var. Arabanın bir önceki sahibinin ruhu da hala arabanın içindedir. 
 
-# Kafasız motorcu
+# Kafasız motorcu (2.5*)
 
 Türk bi tır şoförü İstanbul’dan aldığı malı Berlin’e götürüyomuş. Çift yönlü bir yolda giderken bunu spor bi motorsiklet sollamış. Karşıdan araba geldiği için motorsiklet bizim tırcının önüne girmiş. Onun önünde de saç levha taşıyan bi kamyon varmış. Yalnız kasadan bayağı çıkıkmış saç levhalar. Motorsiklet tam öndeki kamyonu sollayacağı an, mesafeyi tam ayarlayamamış herhalde, bu jilet gibi levhalardan biri motorcunun kafasını tam boynundan kesmiş.
 
@@ -205,16 +205,16 @@ Bi saniye içinde olmuş olay. Havada uçan kafa bizim tırcının camına DANK 
 
 ## Üyeler ne demiş?
 
-eray altınpınar: Kafatası kask
+**eray altınpınar: Kafatası kask**
 Ben de bu olaya benzer bi geyik duydum. Aynen aktarıyorum: Motosikletli bi genç, motoruyla hızla giderken kaza yapıyo. Oldukça da kalabalık, şehiriçi bi yer olduğundan, çevredeki herkes gence yardım etmeye geliyo. Genç, iyiyim, teşekkürler filan diyo. Kalkıp motoruna bakmaya giderken kaskını çıkarıyo ve çıkarmasıyla birlikte yere yığılıyo. Meğer çocuğun kafatası kırılmış, kask da bi süre kafatası görevi görmüş. Kask kafasındayken bişey olmamış ama kaskı çıkarınca beyin dışarı fırlıyor. Tabii yazık oluyo gepegenç oğlana....
 
-# Ara beni boya beni
+# Ara beni boya beni (2.5*)
 
 Kadıköy-Bostancı hattındaki dolmuşlardan birinin şoförü cep telefonunu bi tabelaya yazdırıp ön cama asmış. Altında da “Cengo, Gecelerin Güzeli” yazıyomuş. Fakat koca bi tabela, ne halta yaradığını kimse anlamıyomuş.
 
 Bi gün Marmara Üniversitesi’nden iki tane fırlama tip binmiş dolmuşa. Herifler tabelayı görünce makaraları koyvermişler. İnecekleri yere yaklaşınca biri kendi cebinden şoförün numarasını çevirmiş, herif açınca “Cengo Abi, müsait bi yerde indiriver bizi” demiş. Adam önce afalamış taabi, hemen ani bi frenle sağa çekmiş minibüsü. Bizim çocuklar inerken bütün dolmuştakiler gülmekten kırılıyomuş... 
 
-# Ne kaza be
+# Ne kaza be (3*)
 
 Bizim amcaoğlu bi sabah Bostancı’dan dolmuşa binmiş. Accayip trafik varmış, arabalar milim milim ilerliyomuş. Dolmuş kırmızı ışıkta durmuş. Yeşil yanınca da bizim şoför gazı köklemiş ama tam o sırada öndeki araba stop edince minibüs gacırttt diye geçirmiş arkadan.
 
@@ -222,7 +222,7 @@ Herkes “Allahhh, noluyo” filan derken bi de bakmışlar ki, dolmuşun şofö
 
 Adamı apar+topar Zeynep Kamil’e götürmüşler. Herifin parmak da uzun muymuş neymiş, taaa beynine kadar girmiş. Allahtan verilmiş sadakası varmış da kurtulmuş. Doktorlar, “parmak yarım santim daha içeri girseydi ömür boyu kötürüm kalırdı” demişler. Bu olaydan sonra Kadıköy-Bostancı hattında araç seyir halindeyken burun karıştırmak yasaklanmış. 
 
-# Uçtu uçtu şoför uçtu
+# Uçtu uçtu şoför uçtu (2.5*)
 
 8 kişilik dolmuşlardan biri Kadıköy’den Bostancı’ya doğru gidiyomuş. Şoför de öküzün önde gideniymiş. Herif bi ara boğazını hark hurk temizleyip balgamı ağzında biriktirmiş, sonra nevaleyi dışarı tükürmek için kapısını açmış. Fakat tam o sırada minübüs kocca bi çukura girince bizim öküz aynen dışarı uçmuş.
 
@@ -230,10 +230,10 @@ Can havliyle kapının kolunu filan tutmaya çalışmış ama nafile, araba tam 
 
 ## Üyeler ne demiş?
 
-Mehmet Guler: Okul Servisinin şoförü
+**Mehmet Guler: Okul Servisinin şoförü**
 Benim bildiğim şekliyle ise, minibüs durağında bekleyen bir vatandaş, önünden geçen okul minibüsünde bir tuhaflık seziyor. Bütün çocuklar garip bir şekilde elleri camda, dışarıya öylece bakıyolarmış. Tam, "Ne oluyor yahu?" diye düşünürken bir de bakmış arkadan koşarak bir adam geliyo. Meğersem bu adam şoförmüş ve tükürmek için kapıyı açtığında girdiği bir kasis yüzünden arabadan dışarı uçmuş. Ve bu olay gerçekmiş. Yuh dedim tabii...
 
-# Yapmasana çocuum
+# Yapmasana çocuum (3*)
 
 Kadının biri, Kadıköy’e gitmek için çocuğuyla Bostancı’dan dolmuşa binmiş. Ön tarafa, şoförün yanına oturmuşlar. Çocuk da afacanmış biraz. Sürekli arabanın orasıyla burasıyla oynuyomuş. Annesi de, “Yapma çocuum, etme çocuum, bak şoför amca kızıcak şimdi aaa” diyerek uyarıyomuş oğlunu.
 
@@ -241,7 +241,7 @@ Dolmuş da eski tip, hani şu vitesi direksiyonun yanında olanlar var ya, onlar
 
 Adamın da beklediği fırsatmış bu zaten, “Ellemesene lan sağı solu, rahat dur anasının s...iminin çocuu” demiş. Kadında bet beniz atmış taabi. Ama kendisi istemiş, ne yapsın. Hemen, “Ehi ehi, biz müsait bi yerde inelim şoför bey’ diyerek inmiş oğluyla arabadan... 
 
-# Karşıyakalı Nedim Usta
+# Karşıyakalı Nedim Usta (2.5*)
 
 Çoook uzun zamandır Almanya'da gurbetçilik yapan bi vatandaşımız nihayet hayalini gerçekleştirerek cillop gibi bi Mersedes almış ve o yılki izinine de arabasıyla gelmiş. Allahın işine bak ki, gariban, İzmir civarında kötü bi trafik kazası geçirmiş. Ama ne kaza... Almanların o sağlamlığı ile ünlü arabası bi kaç takla atınca akordiyona dönmüş.
 
@@ -255,34 +255,34 @@ Sonra ne mi olmuş? Nedim Ustamız şu an Mercedes fabrikasında kaportadan soru
 
 ## Üyeler ne demiş?
 
-berk mercik: Karşıyaka'da sanayi sitesi yok ki
+**berk mercik: Karşıyaka'da sanayi sitesi yok ki**
 Doğma büyüme KARŞIYAKA'lıyım ve ilk defa Karşıyaka'da bi sanayi sitesi olduğunu duydum :) İnsanlar genelde İzmirle ilgili bi tek Karşıyaka'yı bildiklerinden (Nasıl ki İstanbulla ilgili olarak Taksim veya Bebek biliniyorsa) her fırsatta olayın içine Karşıyaka'yı katıyolar. Mesela "Nerelisin?" Cevap: "İzmirliyim" "Aaa, ner'den Karşıyakadan mı? Ben gitmiştim daha önce!" Tamam, İzmir'in en güzel mekanlarından biri olabilir ama kesinlikle sanayi sitesi yok. Sanayi siteleri Bornova tarafındadır.
 
-vincent cassel: Çiğli'de sanayi sitesi var
+**vincent cassel: Çiğli'de sanayi sitesi var**
 Çiğli'de sanayi sitesi var ve bundan birkaç sene öncesine kadar Çiğli Karşıyaka'ya bağlıydı. Bu olayın doğruluğu hakkında birşey demiyom ama sanayi sitesi ve kaportacılardan Çiğli'de istemediğin kadar var.
 
-sedat öztürk: Türk'ün başarısı
+**sedat öztürk: Türk'ün başarısı**
 Bu hikaye abartı gibi duruyor ama buna benzer olaylar hiç yaşanmıyor değil. Amerika'nın Körfez Savaşı'nda füzelerin ucuna kamera takıp, hedefleri vurup vurmadığını canlı yayında test etme fikri, bir Türk bilim adamına aitmiş. Ne yazık ki bunu bilen çok az kişi var.
 
-t t: Tankçı Nedim Usta
+**t t: Tankçı Nedim Usta**
 Mercedes fabrikasında çalışan bi Nedim Usta var. Ama o buraya Karşıyaka'dan değil, Kayseri tank fabrikasından gelmiş. Fabrikada kaportaların çarpma testini yapıyor. Ama çarptırmadan, hesap kitapla yapıyor bu işi. Bu yöntemle maliyeti de bayağı düşürmüş.
 
-atilla kaan karahanlı: Nedim Usta Hyundai'de çalışıyormuş
+**atilla kaan karahanlı: Nedim Usta Hyundai'de çalışıyormuş**
 Benim babam kaportacı. Ama Aydın Sanayisinde. Ben meseleyi babama sordum, o bana, Karşıyakalı Nedim ustanın gerçekten de yaşadığını söyledi. Eskiden "Çiğli"nin adı "Yivli" imiş. Hatta araba mekanizmalarında kullanılan "Yiv" buradan geliyormuş. Yivli sanayiinde çalışan Nedim Usta gerçekten yaşamış. Ama öğrendiğim kadarıyla, Alman Vosvos firmasında değil, Japon Hyundai fabrikasında çalışmış.
 
-Cansın Taslıoğlu: Nedim Usta var ama...
+**Cansın Taslıoğlu: Nedim Usta var ama...**
 Valla 15 senedir Karşıyaka'da yaşıyorum ama hakkatten de burda sanayi sitesi yok. Çiğli de bu tip yerler daha çok. Nedim usta konusuna gelince; valla sanayide böyle bir eleman duydum ama öğle abartıldığı kadar bir adam değil. Mercedes konusunu da ilk defa duydum.
 
-cem gülbayoğlu: Asıl efsane amcaoğludur
+**cem gülbayoğlu: Asıl efsane amcaoğludur**
 İzmir'de böyle biri var. Fakat ismi Turgut Usta'dır. Tamirhanesi de Çiğli Atatürk Organize Sanayi'ndedir. Turgut Usta Mercedes'te değil, Saab'ta 25 yıl çalışmış. Şimdi kendi başına çalışıyor. Dükkanı müze gibi ödülden geçilmiyor. Ama asıl efsane olan onun amcaoğlu Muzaffer Usta'dır. Kendisi gemi motoru ustası. Tek başına koca şileplerin motorlarını indirirmiş. 6. Filo İzmir'e geldiğinde motor pistonlarında arıza olmuş. Amerikalılar, "N'apıcaz, ne edeceğiz" derken Türk bir general, "Telaş yapmayın. Burada Muzaffer Usta var. Çağırın, yapsın işinizi" demiş. Usta gelip motoru inceliyor ve "Motor inecek" diyor. Bir güzel indiriyor. Yanında da 2 çırak var. İşi bitiriyor, motor saat gibi tıkır tıkır. Muzaffer Usta takımları toplarken Büyükelçi teşekkür edip uğurluyor. Daha sonra Amerikan Savunma Bakanlığı iş teklif ediyor ama Usta kabul etmiyor. Onlar da Muzaffer Usta'ya 100 bin dolar ve vatandaşlık veriyorlar.
 
-deniz keskinn: Hulki Usta, Amigo Nedim
+**deniz keskinn: Hulki Usta, Amigo Nedim**
 Ben Karşıyaka'da doğdum. 20 yıldır da burda yaşıyorum. Üstelik Mercedes hayranıyımdır. Bırakın Karşıyaka'yı, İzmir civarında bile 'Nedim Usta' diye biri yaşamamaktadır. Belki Hulki Usta vardır. Ama Nedim Usta, mümkün değil. Benim bildiğim tek Nedim, "KSK'li Amigo Nedim"dir. Ondan da böyle bir performans beklemiyorum zaten.
 
-hasan arıcan: Doğruymuş yaa
+**hasan arıcan: Doğruymuş yaa**
 Bu efsaneyi geçen yıl burada okumuştum. Almanya'da araba hurdalığı olan gurbetçi bi arkadaşın babasına sordum. Nedim Usta çok tanınmış biriymiş. Yivli Sanayi Sitesi'nden (valla böyle dedi, Yivli) çağırmışlar. Ama çağırma nedenleri biraz daha farklı. Almanya'dan tatil içinkurist olarak İzmir'e gelen Mercedes fabrikasının müdürlerinden biri, Nedim Usta'yı duyup atölyesine gitmiş, bizzat iş teklif etmiş. Usta Almanya'da uzun süre çalışmış. Ama Nedim Usta vefat edeli çok olmuş.
 
-# Japonun fendi Almanı yendi
+# Japonun fendi Almanı yendi (3*)
 
 Almanlar Caponlara kıl oluyomuş. Kendilerinin çok daha üstün olduklarını düşündüklerinden, “Naapsak da şu Caponlara dersini versek” diye kara kara düşünüyolarmış. Bizdeki TÜSİAD gibi Almanların da bi işveren derneği varmış. Bunlar toplanıp toplanıp bu konu üzerine kafa yoruyolarmış. İşte yine bu toplantıların birinde bi işadamı heyecanla ayağa fırlayıp, “Arkadaşlar Caponlardan daha iyi olduğumuzu kanıtlamazsak Alman malları dünyada hiç satılmıycak. Çok çok acil bişeyler yapmalıyız artık” demiş. Almanların hepsi adama hak vermiş, başlarını sallamışlar onaylamak için, hatta toplantıda hazır bulunan Başbakan da Alman işadamlarına her türlü imkanı sağlayacağına söz vermiş.
 
@@ -302,5 +302,5 @@ Yaa abicim, işte Capon mucizesi budur. Dikkat et, hiç bi Alman şirketi Caponl
 
 ## Üyeler ne demiş?
 
-Gökhan Özkan: Kemanlı versiyon
+**Gökhan Özkan: Kemanlı versiyon**
 Ben bu hikayenin kemanlısını biliyorum. Almanlar, Caponlara inat mikroskopik bir keman yapmışlar ve Caponyaya göndermişler. Yine broşür vs aynı tabii. Caponlar da "Bunun yayını unutmuşsunuz. Biz de yayını yaptık" diye bir mektup ve mikroskopik yayla kemanı geri göndermişler.

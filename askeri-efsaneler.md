@@ -1,4 +1,4 @@
-# Ankara Gemisi'nin gerçek hikayesi
+# Ankara Gemisi'nin gerçek hikayesi (2.5*)
 
 Japonların Pearl Harbor baskını sırasında ABD gemileri arasında batmayan tek gemi, Japonların üzerinde kızıl haç işareti olduğu için batırmadığı ilkyardım gemisiymiş. ABD için savaş tarihinin en büyük facialarından birinden sağ kurtulan bu gemi, Pearl Harbor'da başarı gösteren tüm askerlere verilen madalyaların üzerine işlenecek kadar önemliymiş.
 
@@ -12,10 +12,10 @@ Bu efsaneyi Onur Aykutlu gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-Mustafa Yesil: Önce Kadınlar ve Çocuklar
+**Mustafa Yesil: Önce Kadınlar ve Çocuklar**
 Bu hikaye Sunay Akın'in "Önce Kadınlar ve Çocuklar" kitabında anlatılıyor. Bu olay gerçekten yaşanmış.
 
-# Kamikaze köpekler
+# Kamikaze köpekler (2.5*)
 
 İkinci Dünya Savaşı sırasında Ruslar Nazi Almanya'sının üstün tank gücü karşısında çok zor zamanlar geçiriyormuş. Zeki bir Rus subayı ortaya bir proje atmış. Plana göre orduda görev yapan köpekler, Nazi tanklarına saldıracak kamikazeler olarak eğitilecekmiş. Anti-tank patlayıcılar taşıyan bu köpekler, Nazi tanklarının en savunmasız yeri olan altına doğru koşacaklarmış. Tankın altına girer girmez de sırtlarını tankın tabanına vurup, mayın benzeri patlatma mekanizmaları olan bombalarla tankları etkisiz hale getireceklermiş.
 
@@ -25,10 +25,10 @@ Maalesef Rus tankları köpeklere daha yakın olduğu için Rus birliği ağır 
 
 ## Üyeler ne demiş?
 
-Şero Baso: Mazot kokusu yanılttı
+**Şero Baso: Mazot kokusu yanılttı**
 Bu bir efsane değil. Gerçekten de bir savaş taktiği olarak Ruslar tarafından kullanıldı. Ancak köpekler tankların benzerlikleri nedeniyle hata yapmadılar. Hatanın nedeni bambaşkaydı. Rusların mazotla çalışan, Almanlarınsa benzinle çalışan tankları vardı. Köpeklere daha önce yapılan eğitimlerinde mazotla çalışan Alman tanklarına benzetilmiş Rus tankları kullanıldı. Ancak köpekler, savaş alanında kokuyu "birinci" hedef olarak aldılar.
 
-# Çekil, yoksa çarpıcam!
+# Çekil, yoksa çarpıcam! (2.5*)
 
 Malum, Missouri uçak gemisi, dünyanın en tanınmış büyük tonajlı gemilerinden biri. Missouri'nin kaptanı Kanada açıklarında normal seferini yaparken, radarda, geminin rotası üzerinde bir cisim olduğunu görmüş. Bunun bir gemi olduğunu düşünerek, derhal telsizle haberleşmeye geçmiş.
 
@@ -42,13 +42,13 @@ Bu efsaneyi Hakan Laçinok gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-can aydinlik: Penthouse'un fıkrası
+**can aydinlik: Penthouse'un fıkrası**
 Bu hikayeyi 5 ya da 6 yıl önce, Amerika basımı bir Penthouse dergisinde fıkra olarak okumuştum.
 
-Özgür Özgür: Mümkün değil
+**Özgür Özgür: Mümkün değil**
 Ben Türkiye'deki tüm deniz fenerlerinin idaresi işinde çalışıyorum. Böyle bir şeyin olması, öncelikle denizcilik ahlakı bakımından pek mümkün değil. Çünkü koskoca kaptanın o feneri bilmemesi gibi bi şans yok. Hadi diyelim bilmiyor, bütün fenerler seyir haritaları üzerinde işaretledir. Rota çizerken bile görür yani.
 
-# Şehitler ölmez
+# Şehitler ölmez (4*)
 
 Olay 1974 yılında yapılan Kıbrıs Harekatı'nda yaşanmış. Savaş sırasında bir gün, bizim askerlerden birinin yanına bir başka Mehmetçik gelmiş. Biraz hoşbeşten sonra, ailesine ulaştırması için ona bir mektup vermiş. Bizimki, "Kardeşim savaştayız. Kimin ne olacağı belli değil ki. Belki sen gidersin de, ben kalırım" dese de diğer asker, sürekli, "Hayır sen gideceksin, ben kalacağım," diyormuş. Sonunda başa çıkamayınca razı olmuş. Mektubu götüreceğine söz vermiş. Bir daha o askeri görmemiş. Bi süre sonra da olayı unutmuş.
 
@@ -58,7 +58,7 @@ Sonunda evi bulup kapıyı çalmış. Kapıyı açan yaşlı teyzeye, Kıbrıs't
 
 Bu efsaneyi Muhiddin YENİGÜN gönderdi. Sağolsun, varolsun :) 
 
-# Bank nöbeti
+# Bank nöbeti (2.5*)
 
 Askeri birliği denetleyen bir general, kask, matara, tüfek, yani taam teçhizatlı bi askerin, bir bankın başında nöbet tuttuğunu görmüş. Yanındaki subaylara dönmüş ve, "Bu asker niye burada nöbet tutuyor?" diye sormuş. Ancak hiçbiri açıklayıcı bir cevap verememiş. İçlerinden en eskisi, "Komutanım bu nöbet yıllardır süregelir. Ben buraya geldiğimde de vardı" demiş. Bunun üzerine general, konunun araştırılmasını ve kendisine bilgi verilmesini istemiş.
 
@@ -68,22 +68,22 @@ Bu efsaneyi M. Beyhan Torun gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-BARIS AKDOGAN: Tayini çıkmış
+**BARIS AKDOGAN: Tayini çıkmış**
 Benim bildiğim kadarıyla bu efsanenin aslı şöyle: Üst düzey bir subay, yeni boyanan banka kimse oturmasın diye, başına bir nöbetçi koymuş. Ama kısa bir süre sonra tayini çıkmış ve o arada, bankın başındaki nöbeti düşürmemiş. Yıllar sonra aynı yere tayini çıktığında bir de bakmış ki, o bankın başında hala bir asker nöbet tutuyor.
 
-CAN Zeybek: Kraliçe Viktoria'nın gülleri
+**CAN Zeybek: Kraliçe Viktoria'nın gülleri**
 Ben bu hikayenin bir benzerini Hürriyet gazetesinde okumuştum. Hikaye şöyle: İngiliz Kraliyet Koruma birliğine atanan bir komutan bahçede güvenlik için kontroller yapıyormuş. Bahçenin hiç de stratejik olmayan bir noktasında bir askerin nöbet tuttuğunu görmüş. Bu mantıksız nöbet yerinin araştılması emrini vermiş. Görevliler hemen araştırmaya başlamışlar. Nöbet defterleri karıştırılmış. O noktadaki nöbet yeri kayıtlarının, taa Kraliçe Victoria zamanına uzandığı ortaya çıkmış. Meğersem Kraliçe Victoria özel olarak yetiştirilen bir gül çeşidini bahçeye ekmiş. Bu değerli güle kimsenin dokunmasını istemiyormuş. O nedenle başına nöbetçi diktirmiş. Yaklaşık 100 yıldır garibim İngiliz askerleri, orda boşuna nöbet tutuyormuş. Çünkü ortada gül mül kalmamış.
 
-yaren yaren: Davalık depo
+**yaren yaren: Davalık depo**
 Anlatılan geyiği ben de duymuştum. Ama bir başka askeri geyik daha var ki evlere şenlik. Bir askeri birlikte sular kesiliyor ve bütün kışla susuz kalıyor. Sebep su deposunun boşalmış olması. İşin ilginç tarafıysa ertesi gün su deposuna, askeriyeyi susuz bıraktığı için dava açılması. Üstelik dava sonucu depo hapis cezası almış! Deponun başına bir nöbetçi dikilmiş ve o gün bugündür de söz konusu mekanda nöbet tutuluyormuş.
 
-Süleyman ERHARAT: Cezalı kazan
+**Süleyman ERHARAT: Cezalı kazan**
 Henüz ordudaki kazanların "kromlaşmadığı" hala bakır kazanların kullanıldığı günlerde, içinde öğle yemeği kalan bir kazanın oksitlenmesi ve bu durumun farkedilememesi sonucu gemi personelinin hepsi de motoru bozmuş. Sonuçta kazan disiplin mahkemesine sevkedilmiş ve 15 gün göz hapsi almış. Kazan geminin atelyesinde, önünde bir nöbetçi olmak üzere tam 15 gün boyunca tavandan asılı bir şekilde "cezasını çekmiş".
 
-semih demirbag: Askerler de güler
+**semih demirbag: Askerler de güler**
 Bu hikaye, Orgeneral M. Hikmet Bayar'ın "Askerler de Güler" adlı kitabında yer alıyor. Kitapta buna benzer bir başka anı daha anlatıyor Bayar. Bir gül fidanı dikiliyor,tahmin edeceğiniz gibi başına da bir er nöbetçi olarak geçiriliyor. Devamı malum...
 
-# Gel teskere gel
+# Gel teskere gel (3*)
 
 Türk Silahlı Kuvvetleri'nde askerlik süresini tamamlamadan teskere almanın birçok yolu varmış. Örneğin, bölüğün sancağını çalıp, Genelkurmay'a teslim eden askerler hemen terhis ediliyomuş. Ancak işin tehlikeli yanı, bu konunun bölük komutanları tarafından onur meselesi yapılmasıymış. Yani sancağı çalan askerin, bölüğün şerefinin temizlenmesi adına, vurulmasına kadar varabilirmiş bu iş.
 
@@ -97,16 +97,16 @@ Bu efsaneyi Ebrar Elbasan gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-Özgür Özgür: Masayı bir yumrukta kırarsan...
+**Özgür Özgür: Masayı bir yumrukta kırarsan...**
 Yemin töreninde, masaya yumruk vururken eğer masayı kırarsan hiç askerlik yapmadan, direkt teskere veriyolarmış.
 
-serkan kandemir: Tek yolu pembe teskere
+**serkan kandemir: Tek yolu pembe teskere**
 Bölük düzeyindeki askeri birliklerin sancakları yoktur. Sancak sadece Tugay ve Alay düzeyindeki birliklere verilir. O da nöbetçiler tarafından korunur. Ama sancak çaldıran birlik sürgün yiyormuş, çalan askere de diğer asker veya personel birşey yapmasın diye teskere veriliyormuş diye bir söylenti gerçekten de var. Ama benim bildiğim erken teskerenin tek yolu pempe teskere. Başka yolu yok.
 
-Deniz Turgut: daha farklı
+**Deniz Turgut: daha farklı**
 Bu hikayeyi ben de duydum ama daha farklı. Subayın biri, nöbet tutarken uyuyan erin silahını almış. Sabah içtimasında bütün askerleri toplayıp silahı eksik olan askeri rezil etmek için, "Rum askerleri nöbet başında uyurken silahını almışlar ruhun duymamış. Sabah getirdiler. Rezil ettin bizi" diye bir yalan uydurmuş. Asker bu sözleri gururuna yedirememiş ve ertesi gece sınırın diğer tarafına geçip uyuyan bir Rum askerinin silahını almış. Akabinde silahı komutanına göstermiş. Bunun üzerine uzun bir kafa iznini haketmiş tabii ki...
 
-# Evladım flamayı görmedin mi?
+# Evladım flamayı görmedin mi? (2.5*)
 
 Yedek subay olarak askerlik yapanların kulaktan kulağa anlattığı bi hikayedir bu. Olayın Foça'da geçtiği rivayet edilir. Kadınlar ve askerliğini yapmayanlar için açıklayayım, orduda illa ki önce küçük rütbeli selam verir, sonra da büyük rütbeli bu selamı alır. Bi gün birlik içinde bi yedek subay (asteğmen yani) yürürken yanından birlik komutanı olan paşaya ait makam arabası geçer. Flaması açıktır. Bu da paşanın aracın içinde olduğunu gösterir ve tüm askeri personel arabaya selam vermek zorundadır.
 
@@ -120,7 +120,7 @@ Bu efsaneyi Cem Ünver gönderdi. Sağolsun, varolsun :)
 
 Parlak değil ama çok yaygın bi efsane bu. Ben de Çanakkale'de askerliğimi ifa ederken bu hikayeyi bi asteğmenden, askerlik dönüşü yapılan geyiklerde de bi arkadaşımdan dinlemiştim.
 
-# Türk aslanları Kore'de
+# Türk aslanları Kore'de (3.5*)
 
 Devir Kore Savaşı günleri. Ne idüğü belirsiz bi savaşın içine müttefiklere hoş görüneceğiz diye dalmışız. Amarikalılar, "zaten bizim navy aslanları işi bitirir ama hadi Türkler de istiyor, hevesleri kırılmasın, gelsinler bari" diye hafiften burun kıvırarak karşılamışlar bizim hükümetin savaşa katılma kararını... Vaay, Coni'ye bak. Sen ne zaman adam oldun lan gavur! Sen önce tuvaletine taharat musluğu taktır, kıçındaki b.kla geziyosun...
 
@@ -128,7 +128,7 @@ Devir Kore Savaşı günleri. Ne idüğü belirsiz bi savaşın içine müttefik
 
 Amerikan komutanı alay eder vaziyette, o çelimsiz dediği Mehmetçiği yine sallamaya çalışmış. Ama çocuğu bir milim bile yerinden oynatamamış. Adam bütün gücüyle bir daha denemiş ama nafile. Amarikan komutanı anlamış taabi yanlışını. Hemen bizim komutanın elini sıkmış, bütün birliği de tek tek alınlarından öpmüş... "Zaten İngilizcenizin mükemmeliğinden anlamalıydım. Beni affedin" demiş. 
 
-# Amarika'nın hain planı
+# Amarika'nın hain planı (3*)
 
 Olay soğuk savaş yıllarında geçiyo. Amarikalılarla Ruslar sürekli birbirleriyle uğraşıyolar taabi. Her iki ülke de diğerini sinir etmek için en olmadık yöntemlere başvuruyomuş. Amarikan Hükümeti, Sovyet Ordusunu psikolojik olaraktan çökertmek için bi plan yapmış. Amarika'nın en büyük lateks firmalarından biriyle anlaşılmış. Bu şirket bi Sovyet firmasına prezarvatif sipariş etmiş. Güya bunlar Amerikan ordusuna dağıtılacakmış. Hava, kara, deniz olmak üzere üç ayrı ambalajda hazırlanması istenmiş prezarvatiflerin. İşin can alıcı noktası ise boyutlarıymış. "Rusya'da duyulunca askerlerin morali sıfır olur" denilerek şu ölçüler istenmiş: En 8, Boy 30 cm.
 
@@ -140,19 +140,19 @@ Bu efsaneyi Caner Argan gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-Fevzi Keçeci: Geometri
+**Fevzi Keçeci: Geometri**
 Buna benzer çok şey duydum. Ama benim duyduklarım Amerika ile ilgili değildi. Bu arada alttaki arkadaş önce çap=8 cm sonra da R (=çap) = 2,6 cm demiş. Arkadaşım kendinle çelişmişsin. Zaten 8 cm derken de çaptan bahsediyolar. Yorumunu bir daha okursan hatanı görürsün.
 
-recep birol gokce: Matematik olayı
+**recep birol gokce: Matematik olayı**
 Çap=8 cm ise ve benim bilgime göre dairenin çevresi=2XpiXr. Buna göre: 8=2X3,14Xr Sonuç=1,2738 cm oluyor ve çap da R=2,6 bile değil bu hesaba göre. Bu da bir kadını ne kadar mutlu eder bilemem.
 
-Yaman Eligul: Çevresi 25 santim!
+**Yaman Eligul: Çevresi 25 santim!**
 Çap 2r demek. Yani Çevre=2xpixr ise, bur'da r=8/2=4 oluyo. Yani çevresi 25.14 cm. Oldukca heybetli denilebilir :) Ayrıca latex prezervatifler de 70'li yılların sonlarında çıkmıştı bildiğim kadarıyla...
 
-ismail cin: Çap, yarıçap, pi ve diğerleri
+**ismail cin: Çap, yarıçap, pi ve diğerleri**
 Matematik konusunda biraz da ben ders vermek istiyorum. Hani "Çap=2*pi*r"deki r var ya; o, yarıçaptır. Çap denilen şeyin 2'ye bölünmesi ile bulunur. Bu durumda yukarıdaki arkadaşın Çap=2*pi*çap/2 formülünde çap= pi oluyor. İşlemin doğrusu şöyle: 1- En=8 olduğuna göre çap=8 olur. 2. İlle de çevre hesabı yapılacaksa çevre=3.14*8=25.12 cm eder. 3. Eni 8 santim olan prezarvatif esnekliği de göz önüne alınırsa çorap olarak bile kullanılabilir. 4. Normal bir prezarvatifin eninin (yani çapının) 3 cm'den fazla olabileceğini zannetmiyorum. Aksi takdirde partneriniz yerine prezarvatifle ilişkiye girerdiniz.
 
-# Gökten düşen inek
+# Gökten düşen inek (3*)
 
 Bu olayı bi arkadaşımın babası anlatmıştı bana. O da televizyonda seyretmiş galiba. Japon Denizi'nin ortasında, bi gemi enkazına tutunmuş 3-4 Japon balıkçı, Sahil Güvenlik tarafından kurtarılmış. Yetkililer o gün havanın son derece açık olmasına rağmen gemilerinin nasıl olup da battığını sorduğunda, balıkçılar inanılması güç bi hikaye anlatmış. Güya gökten, güvertenin tam ortasına koccaman bi inek düşmüş. Bunun açtığı delik yüzünden de gemileri bi'kaç dakika içinde batıvermiş. Sahil Güvenlikçiler inanmamış taabi bu hikayeye. Adamlardan şüphelenip gözlem altına almışlar. Balıkçılar bi'kaç hafta nezarette kaldıktan sonra serbest bırakılmış. Çünkü adamlar gerçekten de yalan söylemiyomuş.
 
@@ -160,10 +160,10 @@ Bakın şimdi herifler nası aklanmış: O dönemde bi Rus askeri uçağı Japon
 
 ## Üyeler ne demiş?
 
-yılmaz gültekin: Seyrettim ben bunu
+**yılmaz gültekin: Seyrettim ben bunu**
 Yahu arkadaslar bu olay cidden dogru... Discovery'de seyrettim ben de hikayeyi. Bir grup Rus askeri hırsızlık yaparken oluyor olay. Ciddi ciddi gemi de batıyor. Hatta seyrederken eşime "Tam bahtsız bedeviymiş bu Japonlar da" dedim. Cidden de öyle yaa. Denizin ortasında insanın kafasına inek düser mi hiç? Ne diyelim, hayat işte...
 
-# Video kasetle boşanma
+# Video kasetle boşanma (3*)
 
 Bunu bana Amerikalı bi arkadaşın abisi anlatmıştı. Körfez Savaşı için Basra Körfezi'ne giden Amerikan donanmasından bi askere Teksas'taki evinden, içinde video kaset olan bi paket gelmiş. Savaşın o rezilliğinde çok zor olmasına rağmen komutanların yardımıyla bi video bulunup dinlenme odasına konmuş. Çocukla beraber gemideki diğer askerler de "biraz memleket havası almak için" videonun başına kurulmuş. Önce askerin anne-babası, kız kardeşi, oğlu çıkmış, "onu ne kadar çok sevdiklerini, oradaki herkese selam gönderdiklerini" falan söylemişler. Arkasından çocuğun çok sevdiği köpeğinin "en iyi eğitilmiş köpek" seçildiği yarışmadan görüntüler başlamış. Herkes çocuğu tebrik edip, sırtını sıvazlamış.
 
@@ -177,7 +177,7 @@ Körfez Savaşı sırasında bi askere, içinde bir de video kasetin olduğu, ne
 
 O an herkes şaşkınlıktan ner'deyse küçük dilini yutacakmış, çünkü kadın çırılçıplakmış. Birden görüntüye çıplak bi adam girmiş ve kadın ona oral seks yapmaya başlamış. Zavallı askercik bunu görünce şoka girmiş, gözleri ekranda bi noktaya sabit öylece kalakalmış. Ekrandaki adam tam boşalacağı sırada kadın elindeki hamur kabını malum yere doğru tutmuş. Hamuru karıştırmaya devam ederek, "Umarım kurabiyeleri sevmişsindir. Ha unutmadan, bu arada senden boşanmak istiyorum" demiş. Bizim asker zaten şokta olduğundan duymamış bile bu sözleri. Diğer askerler kusa kusa, zavallı çocuğu hemen sıhhiye gemisine götürmüş. 
 
-# Osmanlı disiplini
+# Osmanlı disiplini (3*)
 
 Osmanlı'nın ortalığı toz duman ettiği yıllar... Avrupa'da "Arthur oğlum, o tabakta bi köfte kalırsa seni Türklere veririm vallaha" lafının çıkıp da halk arasında deyim olduğu zamanlar yağni.
 
@@ -187,7 +187,7 @@ Gece olmuş yatılmış. İngiliz gasteci sabah çadırının penceresinden sız
 
 Osmanlı deyince durup beş dak'ka düşünücen taabi. Kolay mı öyle yedi cihana kök söktürmek! İngiliz gasteci ülkesine dönüp bu olayı yazmış da kimse inanmamış adama. "Sana bu masalı anlatman için kaç kese altın verdiler" demişler alay ederek. Adam da o sinirle evini barkını satıp İstanbul'a gelmiş. Topkapı Sarayı'nın muhafız başısına hikayesini anlatıp, Türk ordusuna katılmak istediğini söylemiş. Gavur diye temkinli davranmışlar ama adamın istediği olmuş yine de. Silahhane de namlu yağlama işine vermişler. Orada ömrünün sonuna kadar huzur içinde çalışmış gasteci. 
 
-# Mig efsanesi nasıl yıkıldı? 
+# Mig efsanesi nasıl yıkıldı? (4*)
 
 Malum, soğuk savaş yıllarında Rusların MIG-27 ve MIG-29 uçakları yüksek teknolojileri ve tahrip güçleriyle nam salmıştı. Sovyetler yıkılana kadar da bi MIG-29'un neye benzediği tam olarak bilinmiyordu. Nükleer başlık da taşıyabilen bu uçakların fotoğrafları bile yoktu Batı ülkelerinin elinde. Sadece bi takım varsayımlara dayanan MIG-29 maketleri yapılmıştı, o kadar. Daha doğrusu resmi kaynaklar böyle yazıyo ama işin aslı başka. Biz olmasak... Ulan şu Amarikalılar var ya, yatıp kalkıp elimizi öpseler yeri. Zaten icatların çoğunu da Kur'andan baka baka yapmışlar, hatta hala daha öyle yapıyolarmış.
 
@@ -201,17 +201,17 @@ Bu Amarikalılar var ya... Yağni yatıp kalkıp. Neyse...
 
 ## Üyeler ne demiş?
 
-Çağrı Açıkgöz: Hiç düşüren olmadı
+**Çağrı Açıkgöz: Hiç düşüren olmadı**
 Tamam, efsane dediğin azıcık işkembe-i kübra'dandır ama bu kadar da değil... Birincisi Trabzon'a inmeden önce, Farnbrough Havacılık Fuarında uçak tüm Batı'ya fiyakayla sergilenmişti. Hatta binlerce kişinin önünde yere bile çakılmıştı. İkincisi bir uçağı öyle söküp takmak boru değil. Koskoca TAI bile F-16'yı ancak bir haftada monte edebiliyor. Ayrıca hangi kalıp malzemesi bir saatte kuruyabilir ki? Bir de şu karadan havaya füze hikayesi var. Mig-29 füzesi diye bi'şey yok ki, bu silahlar herkeste var. Ayrıca, kim şimdiye kadar bir Mig-29 düşürmüş ki? Mig-29'lar hiç Batı'yla savaşa girmedi. Sadece İsrail bazı Suriye uçaklarını düşürdüğünü iddia ediyor o kadar. Körfez savaşında Irak, Mig-29'larını zaten havalanamadan yerde vurdular. Ama gene de bu hikaye, milliyetçilik duygularına hitap etmiyor da değil. Çocuğum olduğunda, o uyusun diye anlatırım..
 
-Emrah Dinçer: Mig-29'un lambası
+**Emrah Dinçer: Mig-29'un lambası**
 Bu gerçek! Çünkü bize elektronik profesörü okulda anlattı. Amerikalılar, nasıldır falan diye Mig-29'ları çok merak ediyolarmış. Bir gün benzer bir şekilde bir uçak ele geçirilmiş. Elemanlar hemen uçağı sökmüşler. Elektronik aksamına bi de bakmışlar ki; telsiz sistemlerinde transistör yerinde 30'ların 40'ların radyolarında kullanılan lambalar var. (Lambalar çok ilkel transistörlerdir ve her açıdan transistörlerden kötülerdir.) "Sovyetler amma geriymiş, biz de o kadar gözümüzde büyüttük" diye düşünürlerken, bi mühendis, "Yahu bu heriflerin garanti bi bildiği vardır. Bi inceleyelim" demiş. Gerçekten de incelemişler ve görmüşler ki; eğer dünyada bir nükleer savaş çıkarsa yayılacak ışınların yaratacağı elektron dalgaları, transistörleri bozuyor, ama lambalar çalışmaya devam ediyor. Tabii hemen alelacele Airforce One'ı falan lambalı sisteme geçirmişler.
 
-halil karakus: Amerikan kurnazlığı
+**halil karakus: Amerikan kurnazlığı**
 Ben de şöyle bir olay duymuştum: Kayseri'deki Hava İkmal Üssü'nde kullanılan ikmal uçakları, ABD'nin taa bilmemkaç yılında kullandığı uçaklarmış. Her 3-5 ayda bir, Amerika'dan bi uçak mühendisi gelip bu uçaklara bakım yapıyomuş. Ama bakım esnasında, anlaşma gereği, hiçbir Türk askeri ya da mühendisi hangarda bulunamıyormuş. Bu Amerikalılar'a her gelişte, servis ücreti olarak bi ton dolar veriyomuşuz. Bi gün bizim Türk pilotun biri, "Bunlar neyin bakımını yapıyo" diye merak etmiş. Bir bakım zamanı soteye yatıp izlemiş. Meğersem adamlar taaa Amerika'dan gelip sadece 1.5 voltluk bir pil değiştiriyorlarmış!
 
-ilker çetin: Trabzon'a inmişti
+**ilker çetin: Trabzon'a inmişti**
 MIG-29'un Trabzon'a indiği doğru. Uçak Rusya'ya, sökülerek teslim edildi. Hem de öyle bir saat içinde değil, parça parça aylar sonra. Hangi yıldı hatırlamıyorum ama, olay basına da yansımıştı.
 
-mehmet karadeniz: Öyle büyük hangar yok valla
+**mehmet karadeniz: Öyle büyük hangar yok valla**
 Bu efsane gerçekten güzel ama benim aklım Trabzon'daki hangara takıldı. Hayatımın 18 yılı Trabzon'da geçti. Üstelik evimiz havaalanının tam karşısındaki bir binanın 10. katındaydı. Havaalanının her yerini rahatlıkla görüyorduk. Ama bir Mig 29'un sığabileceği hangar görmedim. Kafama takılan diğer bir konu ise; efsane sayıldıkları dönemde bile çok iyi bir uçak olmayan Mig 29 için CIA'in bunca zahmete girmesi. Mesela Rusların SU 27'leri bile Mig'lerden daha iyi uçaklardır.
