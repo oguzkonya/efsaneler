@@ -1,3 +1,11 @@
+# İstanbul Efsaneleri
+
+* [Anıttaki füze  (2.5*)](#anıttaki-füze--25)
+* [O yasak, bu yasak (3.5*)](#o-yasak-bu-yasak-35)
+* [İstanbul'un dibi kıvrım kıvrım (3.5*)](#i̇stanbulun-dibi-kıvrım-kıvrım-35)
+* [Paha biçilmez çamur (2.5*)](#paha-biçilmez-çamur-25)
+* [Haliç'in dibi altın dolu (3*)](#haliçin-dibi-altın-dolu-3)
+
 # Anıttaki füze  (2.5*)
 
 İsa peygamberi çarmıhtan indiren havarilerinden biri, el ve ayaklarındaki çivileri söktükten sonra saklamış. Bu çiviler daha sonraki yıllarda Bizans İmparatorluğu'na teslim edilmiş. Bizans imparatorlarından biri, sonsuza kadar korunabilmesi için Hz İsa'nın çivilerini Çemberlitaş'ın temeline gömdürtmüş. Bu paha biçilmez çiviler hala Çemberlitaş'ın temelinde gömülüymüş.

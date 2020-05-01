@@ -1,3 +1,24 @@
+# Arabalı Efsaneler
+
+* [Kedi testi (2.5*)](#kedi-testi-25)
+* [Gıcır gıcır İmpala (2.5*)](#gıcır-gıcır-i̇mpala-25)
+* [Bakır cant kapakları (2*)](#bakır-cant-kapakları-2)
+* [Tramvay oyunu (2.5*)](#tramvay-oyunu-25)
+* [Anadol'a bak be (3.5*)](#anadola-bak-be-35)
+* [Diğer arabam Porsche (2.5*)](#diğer-arabam-porsche-25)
+* [Radardan kurtulun (2.5*)](#radardan-kurtulun-25)
+* [Bacağımı kaşıyom ama? (2.5*)](#bacağımı-kaşıyom-ama-25)
+* [Valla fil hortumu (2.5*)](#valla-fil-hortumu-25)
+* [Arada ne kalmış? (2.5*)](#arada-ne-kalmış-25)
+* [Ölü kokulu araba (2.5*)](#ölü-kokulu-araba-25)
+* [Kafasız motorcu (2.5*)](#kafasız-motorcu-25)
+* [Ara beni boya beni (2.5*)](#ara-beni-boya-beni-25)
+* [Ne kaza be (3*)](#ne-kaza-be-3)
+* [Uçtu uçtu şoför uçtu (2.5*)](#uçtu-uçtu-şoför-uçtu-25)
+* [Yapmasana çocuum (3*)](#yapmasana-çocuum-3)
+* [Karşıyakalı Nedim Usta (2.5*)](#karşıyakalı-nedim-usta-25)
+* [Japonun fendi Almanı yendi (3*)](#japonun-fendi-almanı-yendi-3)
+
 # Kedi testi (2.5*)
 	
 Yerli bir otomobil üreticisi firmamızın üst düzey yetkilisi, Japonya'da otomobiller banttan çıkınca kedi testi adında bir testen geçtiğini duymuş. Japonya'da otomobiller bu testi geçerse satışa çıkıyormuş. Güya Japonlar tamamen biten otomobilin içine akşamdan bir kedi koyuyorlarmış. Gece boyu arabada kapalı kalan kedi, sabah geldiklerinde yaşıyorsa izolasyonda sorun var diye arabayı tekrar incelemeye alıyorlarmış. Kedi ölüyse otomobilin tamamen başarılı bir üretim olduğuna karar veriyorlarmış.

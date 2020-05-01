@@ -1,3 +1,28 @@
+# Ayıp Efsaneler
+
+* [Çok soğuktu ve ... (3*)](#çok-soğuktu-ve--3)
+* [Vibratör iyi gelir (2*)](#vibratör-iyi-gelir-2)
+* [Öğk! Bu koku da ne? (3*)](#öğk-bu-koku-da-ne-3)
+* [Yerli Emanuella Mualla (2.5*)](#yerli-emanuella-mualla-25)
+* [Doğum günü kabusu (4*)](#doğum-günü-kabusu-4)
+* [Seksin binbir çeşidi (2.5*)](#seksin-binbir-çeşidi-25)
+* [Vatikan'ın porno hazinesi (2.5*)](#vatikanın-porno-hazinesi-25)
+* [Kocaya sürpriz! (3.5*)](#kocaya-sürpriz-35)
+* [Kampüste tecavüz (3*)](#kampüste-tecavüz-3)
+* [Eşşek şakası (3*)](#eşşek-şakası-3)
+* [Vajinadaki soğan (2.5*)](#vajinadaki-soğan-25)
+* [Arabada seks (2.5*)](#arabada-seks-25)
+* [Sperm koması (2*)](#sperm-koması-2)
+* [Ne orgazmmış be! (2.5*)](#ne-orgazmmış-be-25)
+* [Çıplak gösteren gözlük (2.5*)](#çıplak-gösteren-gözlük-25)
+* [Burnu büyük olanın... (2.5*)](#burnu-büyük-olanın-25)
+* [Balayı sürprizi (3.5*)](#balayı-sürprizi-35)
+* [Armstrong niye öyle dedi? (3.5*)](#armstrong-niye-öyle-dedi-35)
+* [Vah başımıza gelen (3.5*)](#vah-başımıza-gelen-35)
+* [Ben zaten kontrollüyüm (3*)](#ben-zaten-kontrollüyüm-3)
+* [Temizken gör işini (2.5*)](#temizken-gör-işini-25)
+* [Parti yaptım güzele (3.5*)](#parti-yaptım-güzele-35)
+
 # Çok soğuktu ve ... (3*)
 
 Amerika'nın kuzeyinde bir yerlerde yeni tanışmış iki genç haftasonu kaçamağı için bir kayak merkezine gidiyorlarmış. Dışarıda fena bir soğuk varmış, acayip de kar yağmaktaymış. Çift tanışma çabaları içinde hafiften flört vaziyette, kikirdeyerek, oynaşarak hava koşullarının elverdiği ölçüde yol almaktaymış.

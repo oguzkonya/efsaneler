@@ -1,3 +1,24 @@
+# Tarihi Efsaneler
+
+* [Allessandra Lolita Oswaldo (2.5*)](#allessandra-lolita-oswaldo-25)
+* [Ata sporumuz karateydi (2*)](#ata-sporumuz-karateydi-2)
+* [Churchill'i küflü peyir kurtardı (2*)](#churchilli-küflü-peyir-kurtardı-2)
+* [Pizzanın bilinmeyen tarihi (2.5*)](#pizzanın-bilinmeyen-tarihi-25)
+* [Japon mucizesini Mimar Sinan yarattı (4*)](#japon-mucizesini-mimar-sinan-yarattı-4)
+* [Mimar Sinan'an mektup var (2*)](#mimar-sinanan-mektup-var-2)
+* [Çin kılıcı ipeği keser (2.5*)](#çin-kılıcı-ipeği-keser-25)
+* [Bol yumurtalı cami (3*)](#bol-yumurtalı-cami-3)
+* [Perçinci efe (2.5*)](#perçinci-efe-25)
+* [Osmanlı taktiği (3.5*)](#osmanlı-taktiği-35)
+* [Churchill'in çuvalı (3.5*)](#churchillin-çuvalı-35)
+* [İlk metroyu biz yaptık (2.5*)](#i̇lk-metroyu-biz-yaptık-25)
+* [Saraydaki felaketler zinciri (2*)](#saraydaki-felaketler-zinciri-2)
+* [Atatürk Q harfini sevmezdi (2.5*)](#atatürk-q-harfini-sevmezdi-25)
+* [Uzun Hasan kömürü nasıl buldu? (2*)](#uzun-hasan-kömürü-nasıl-buldu-2)
+* [Aman paşam, canım paşam (2.5*)](#aman-paşam-canım-paşam-25)
+* [Kel Aliço öküzünü yedi (2.5*)](#kel-aliço-öküzünü-yedi-25)
+* [Lefter ineği nasıl öldürdü? (2.5*)](#lefter-ineği-nasıl-öldürdü-25)
+
 # Allessandra Lolita Oswaldo (2.5*)
 
 Telefonu açtığımızda "alo" deriz. Bu sözcüğün İngilizce "hello" kelimesinden geldiği gibi tamamen yanlış bir kanı var. Alo sözcüğünün çıkışı, aslında taaa Alexander Graham Bell'e uzanır.

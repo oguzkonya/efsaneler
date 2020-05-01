@@ -1,3 +1,23 @@
+# Markalı Efsaneler
+
+* [KAV kibritleri nasıl kurtuldu? (2.5*)](#kav-kibritleri-nasıl-kurtuldu-25)
+* [Cola soğuk içilir (2.5*)](#cola-soğuk-içilir-25)
+* [Hamburger savaşları (2.5*)](#hamburger-savaşları-25)
+* [Şişede adam varmış (2.5*)](#şişede-adam-varmış-25)
+* [Zavallı yaşlı zenci (3*)](#zavallı-yaşlı-zenci-3)
+* [Porsche manyağı (3*)](#porsche-manyağı-3)
+* [Noel baba'nın imajı (2.5*)](#noel-babanın-imajı-25)
+* [Bedava Hülya Avşar (2.5*)](#bedava-hülya-avşar-25)
+* [Marlboro nasıl tutuldu? (3*)](#marlboro-nasıl-tutuldu-3)
+* [Citroen'in amblemi (2.5*)](#citroenin-amblemi-25)
+* [Nane şekerli oral seks (2.5*)](#nane-şekerli-oral-seks-25)
+* [Hamburgerimde HIV var (2*)](#hamburgerimde-hiv-var-2)
+* [Örümcek yumurtalı sakız (2.5*)](#örümcek-yumurtalı-sakız-25)
+* [Kimyasal tavuklar (2.5*)](#kimyasal-tavuklar-25)
+* [Playboy'un yıldızları (2.5*)](#playboyun-yıldızları-25)
+* [Üzerini silmeden içmeyin (2.5*)](#üzerini-silmeden-içmeyin-25)
+* [Kapakçık ver sandalye al (2.5*)](#kapakçık-ver-sandalye-al-25)
+
 # KAV kibritleri nasıl kurtuldu? (2.5*)
 
 Ünlü Kav kibritlerinin satışı müthiş derecede düşmüş. Firma artık zarar etmeye başlamış. Ne yaparlarsa yapsınlar satışı arttıramıyorlarmış. Sabah akşam toplantılar yapıp bir çıkış yolu arıyorlarmış.
@@ -53,7 +73,7 @@ O günden sonra da, Amerika'daki hamburger restoranlarında çalışan elemanlar
 
 Bu efsaneyi Ozan Cılga gönderdi. Sağolsun, varolsun :)
 
-# Şişede adam varmış  (2.5*)
+# Şişede adam varmış (2.5*)
 
 Coca Cola şişeleme fabrikasında çalışan işçilerden biri, bi gün işe gelmemiş. Arkadaşları merak etmişler. Akşama doğru, hala ortalıkta olmayınca, evini arayıp sormaya karar vermişler. Telefon ettiklerinde, kayıp işçinin karısı iki gözü iki çeşme, eşinden haber alamadığını söylemiş. Hemmen polise haber vermişler. Aranmış-taranmış ama adam bulunamamış.
 
@@ -390,7 +410,7 @@ Mussolini yıllarında İtalya'da kıyafetlerden buzdolaplarına kadar her şey 
 **özkan Dilmen: Açma halkasının muciti**
 Bütün kutu içeceklerin açma halkalarını icat eden Amerikalı mucit , açılan her kutudan patent ücreti olarak 1 cent alıyormuş. Dünyada günde kaç tane açma halkalı içececek tüketiliyordur. Adamın kazandığı paraya bakın.
 
-# Kapakçık ver sandalye al  (2.5*)
+# Kapakçık ver sandalye al (2.5*)
 
 Eskiden kutu kolaların "açma halkaları" (hani ucundan tutup çekeriz de kola "fıs"lar ya, o kapakçıklar işte) kutunun üzerinde kalmıyodu biliyosunuz. Gerçi şimdikileri de kısa bi uğraşla yerinden kopartabilirsiniz ama o zamanlar kutuyu açınca kapakçık elimizde kalırdı. İşte önce İstanbul'u, ardından da bütün Türkiye'yi saran "açma halkası" efsanesi de bu aksesuar üzerine kurulmuştu. Söylentiye göre, "onbin kapakçık getiren herkese kola firmaları bir tekerlekli sandalye veriyodu", daha doğrusu "kola kapakçığı toplama organizatörleri"nin deyimiyle, "veriyolarMIŞ".
 

@@ -1,3 +1,15 @@
+# Dini Efsaneler
+
+* [Dindar bilgisayar (3.5*)](#dindar-bilgisayar-35)
+* [Yumurtanın kabuğu (2*)](#yumurtanın-kabuğu-2)
+* [İlahiyattaki dilenci (3*)](#i̇lahiyattaki-dilenci-3)
+* [Yumurtayla Tanrı testi (3*)](#yumurtayla-tanrı-testi-3)
+* [Cehenneme açılan kuyu (2.5*)](#cehenneme-açılan-kuyu-25)
+* [Amarika'nın Başkanı (2.5*)](#amarikanın-başkanı-25)
+* [Edison'un büyük sırrı (2.5*)](#edisonun-büyük-sırrı-25)
+* [Kusto'nun müslümanlığı (3.5*)](#kustonun-müslümanlığı-35)
+* [Uzayda ezan sesi duydum (3*)](#uzayda-ezan-sesi-duydum-3)
+
 # Dindar bilgisayar (3.5*)
 
 Amerika'da katolik kilisesinin yöneticileri, "Madem ki devir bilgisayar devri, o zaman çoook güçlü bi bilgisayar yaptırıp elimizde dinlerle ilgili ne kadar bilgi varsa yükleyelim, sonra da soralım bakalım, 'En iyi din hangisi?" Amerikalılar bu deney sonunda bilgisayarın kesinlikle hıristiyanlığı seçeceğinden eminmişler. Dertleri de, sonucu Dünya'ya açıklayıp hava atmakmış.

@@ -1,3 +1,19 @@
+# Askeri Efsaneler
+
+* [Ankara Gemisi'nin gerçek hikayesi (2.5*)](#ankara-gemisinin-gerçek-hikayesi-25)
+* [Kamikaze köpekler (2.5*)](#kamikaze-köpekler-25)
+* [Çekil, yoksa çarpıcam! (2.5*)](#çekil-yoksa-çarpıcam-25)
+* [Şehitler ölmez (4*)](#şehitler-ölmez-4)
+* [Bank nöbeti (2.5*)](#bank-nöbeti-25)
+* [Gel teskere gel (3*)](#gel-teskere-gel-3)
+* [Evladım flamayı görmedin mi? (2.5*)](#evladım-flamayı-görmedin-mi-25)
+* [Türk aslanları Kore'de (3.5*)](#türk-aslanları-korede-35)
+* [Amarika'nın hain planı (3*)](#amarikanın-hain-planı-3)
+* [Gökten düşen inek (3*)](#gökten-düşen-inek-3)
+* [Video kasetle boşanma (3*)](#video-kasetle-boşanma-3)
+* [Osmanlı disiplini (3*)](#osmanlı-disiplini-3)
+* [Mig efsanesi nasıl yıkıldı? (4*)](#mig-efsanesi-nasıl-yıkıldı-4)
+
 # Ankara Gemisi'nin gerçek hikayesi (2.5*)
 
 Japonların Pearl Harbor baskını sırasında ABD gemileri arasında batmayan tek gemi, Japonların üzerinde kızıl haç işareti olduğu için batırmadığı ilkyardım gemisiymiş. ABD için savaş tarihinin en büyük facialarından birinden sağ kurtulan bu gemi, Pearl Harbor'da başarı gösteren tüm askerlere verilen madalyaların üzerine işlenecek kadar önemliymiş.

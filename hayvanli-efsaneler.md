@@ -1,3 +1,19 @@
+# Hayvanlı Efsaneler
+
+* [Tekerlek yılanı (2.5*)](#tekerlek-yılanı-25)
+* [Horoz yumurtası (2.5*)](#horoz-yumurtası-25)
+* [Zombi tavşan (2.5*)](#zombi-tavşan-25)
+* [Akrebin marifeti (2.5*)](#akrebin-marifeti-25)
+* [Denizanası (2*)](#denizanası-2)
+* [Vah zavallı kedicik (2*)](#vah-zavallı-kedicik-2)
+* [Kanguru ne ki? (2.5*)](#kanguru-ne-ki-25)
+* [Veliefendi'nin Kralı (2.5*)](#veliefendinin-kralı-25)
+* [Meğer kızcağız masummuş (2.5*)](#meğer-kızcağız-masummuş-25)
+* [New York'un timsahları (2.5*)](#new-yorkun-timsahları-25)
+* [Doberman deyince durucan (2.5*)](#doberman-deyince-durucan-25)
+* [Cep telefonu nerede? (2.5*)](#cep-telefonu-nerede-25)
+* [Biz sizin kediyi ezdik (2.5*)](#biz-sizin-kediyi-ezdik-25)
+
 # Tekerlek yılanı (2.5*)
 
 Üç çocuklu bir aile, steyşın tipi arabalarıyla Siirt'ten Hasankeyf yönüne gidiyormuş. 5 ve 7 yaşındaki iki çocuk arka koltukta, 3 aylık bebek de önde, annenin kucağında oturuyormuş.

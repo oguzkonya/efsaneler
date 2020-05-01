@@ -1,3 +1,28 @@
+# Okul Efsaneleri
+
+* [Aynadaki ruj lekesi (3.5*)](#aynadaki-ruj-lekesi-35)
+* [Amman kürdana dikkat (2*)](#amman-kürdana-dikkat-2)
+* [Siz öpüşenler! Dışarı (2.5*)](#siz-öpüşenler-dışarı-25)
+* [Bizim bir hoca vardı (3*)](#bizim-bir-hoca-vardı-3)
+* [Sonsuzu istiyorsun (3*)](#sonsuzu-istiyorsun-3)
+* [ODTÜ efsaneleri (3*)](#odtü-efsaneleri-3)
+* [Dehşet Neşet (3.5*)](#dehşet-neşet-35)
+* [Pencereyi açarım (4*)](#pencereyi-açarım-4)
+* [Anaaa, o neee? (3.5*)](#anaaa-o-neee-35)
+* [Tebeşir kıtlığı (3.5*)](#tebeşir-kıtlığı-35)
+* [Menemeni severim (4*)](#menemeni-severim-4)
+* [Makattaki ağrı (2.5*)](#makattaki-ağrı-25)
+* [Uçağa daha yarım saat var (3.5*)](#uçağa-daha-yarım-saat-var-35)
+* [Nolur geçir beni hocam (2.5*)](#nolur-geçir-beni-hocam-25)
+* [Ev ödevi-mev ödevi (3*)](#ev-ödevi-mev-ödevi-3)
+* [Banu uyuyo mu acaba? (3.5*)](#banu-uyuyo-mu-acaba-35)
+* [Jointli sigara doğurdu (2.5*)](#jointli-sigara-doğurdu-25)
+* [Kızcağız koşarak kaçmış (3.5*)](#kızcağız-koşarak-kaçmış-35)
+* [Şu bizim Fizikçi di'mi? (2.5*)](#şu-bizim-fizikçi-dimi-25)
+* [Mektubu dağıtman şart (2.5*)](#mektubu-dağıtman-şart-25)
+* [Neden olmasın ki yağni? (3.5*)](#neden-olmasın-ki-yağni-35)
+* [Valla teker patladı hocam (3.5*)](#valla-teker-patladı-hocam-35)
+
 # Aynadaki ruj lekesi (3.5*)
 
 Bir kız yurdunda kalan kızlar, artık temizlik görevlisine olan kıllıklarından mıdır yoksa nerden çıktığı belli olmayan bir yurt geleneğinden midir, her sabah dudaklarına ruj sürdükten sonra aynaya öperek iz bırakıyorlarmış.

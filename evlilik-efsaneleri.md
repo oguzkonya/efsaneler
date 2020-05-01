@@ -1,3 +1,19 @@
+# Evlilik Efsaneleri
+
+* [Hipokrat yemini mi! O da ne? (3*)](#hipokrat-yemini-mi-o-da-ne-3)
+* [Boş ol, boş ol, boş ol (2.5*)](#boş-ol-boş-ol-boş-ol-25)
+* [Sürat yapmışsın, boşuyorum seni (2.5*)](#sürat-yapmışsın-boşuyorum-seni-25)
+* [Zavallı kayınpeder (3*)](#zavallı-kayınpeder-3)
+* [Nur yüzlü teyze (2.5*)](#nur-yüzlü-teyze-25)
+* [Ucubik Erotizm Kulübü (2.5*)](#ucubik-erotizm-kulübü-25)
+* [İnfilak eden tuvalet (3*)](#i̇nfilak-eden-tuvalet-3)
+* [Talihsiz gelini yılan soktu (2*)](#talihsiz-gelini-yılan-soktu-2)
+* [Parayı kim çaldı? (2.5*)](#parayı-kim-çaldı-25)
+* [Bedava uçak bileti (2.5*)](#bedava-uçak-bileti-25)
+* [Köpeğin yaptığına bakın (3*)](#köpeğin-yaptığına-bakın-3)
+* [Aman tanrım nasıl olur? (2.5*)](#aman-tanrım-nasıl-olur-25)
+* [Ben prezarvatif kullanmıyom (2.5*)](#ben-prezarvatif-kullanmıyom-25)
+
 # Hipokrat yemini mi! O da ne? (3*)
 
 Bu olayın İzmir'de bir hastanede gerçekten olduğu söyleniyor. Kadının biri kocasına rahatsız olduğunu, kasıklarına doğru bir sancı hissettiğini söylemiş. Adam da hastanede görevli bir doktor arkadaşından randevu alıp karısını muayeneye götürmüş. Kadın doktorun odasına girmiş, adam beklemeye başlamış.

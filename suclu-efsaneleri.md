@@ -1,3 +1,33 @@
+# Suçlu Efsaneleri
+
+* [Evinizde truva atı var (2.5*)](#evinizde-truva-atı-var-25)
+* [Saatiniz kaç? (3*)](#saatiniz-kaç-3)
+* [Ceset sait (2*)](#ceset-sait-2)
+* [Baba Ferit (3*)](#baba-ferit-3)
+* [Yetişin! Torunum bayıldı (3*)](#yetişin-torunum-bayıldı-3)
+* [Uluslararası Dolandırıcı (2.5*)](#uluslararası-dolandırıcı-25)
+* [Arabamızı geri ver (2.5*)](#arabamızı-geri-ver-25)
+* [Bedavaya gelen Porsche (2.5*)](#bedavaya-gelen-porsche-25)
+* [Hırsızlığın böylesi (3.5*)](#hırsızlığın-böylesi-35)
+* [Gurbetçinin başına gelen (2.5*)](#gurbetçinin-başına-gelen-25)
+* [Otobüste dehşet (2.5*)](#otobüste-dehşet-25)
+* [Cin fikirli mahkum (3.5*)](#cin-fikirli-mahkum-35)
+* [Sağ tek, sol tek (2.5*)](#sağ-tek-sol-tek-25)
+* [Akıllı purocu faka bastı (3.5*)](#akıllı-purocu-faka-bastı-35)
+* [Hacıhüsrev'in yankesicileri (2.5*)](#hacıhüsrevin-yankesicileri-25)
+* [Öğrencilik hali (2.5*)](#öğrencilik-hali-25)
+* [Sakkın uyarmayın (2.5*)](#sakkın-uyarmayın-25)
+* [Pompalı ceza (2.5*)](#pompalı-ceza-25)
+* [Vah zavallı hırsızcık (2.5*)](#vah-zavallı-hırsızcık-25)
+* [Hayırsever hırsızlar (3*)](#hayırsever-hırsızlar-3)
+* [Diş fırçasıyla ne yapmışlar? (2.5*)](#diş-fırçasıyla-ne-yapmışlar-25)
+* [Böyle de hırsızlık olur mu? (2.5*)](#böyle-de-hırsızlık-olur-mu-25)
+* [Toplu iğneli sapıklar (2.5*)](#toplu-iğneli-sapıklar-25)
+* [3000 dolarlık fatura (2.5*)](#3000-dolarlık-fatura-25)
+* [AIDS'li kuru fasulye (2*)](#aidsli-kuru-fasulye-2)
+* [Ertesi sabah kabusu (2.5*)](#ertesi-sabah-kabusu-25)
+* [Mafya komşum var benim (2.5*)](#mafya-komşum-var-benim-25)
+
 # Evinizde truva atı var (2.5*)
 
 Yaz tatiline çıkan zengin bir aile evlerine göz kulak olması, arada sırada havalandırması için evlerinin anahtarlarını her yıl olduğu gibi komşularına bırakmış. Güle oynaya tatile çıkmışlar. Aradan bir iki hafta geçmiş, zengin çiftin dönmesine az bir süre kala komşunun kapısı çalınmış. Kapıda ellerinde şık bir kanepe olan iki adam varmış. "Efendim" demişler, "biz falanca mobilya şirketinden geliyoruz. Komşunuzun bir çekyat siparişi vardı Ancak evde yoklar". Komşu kadın da tatilde olduklarını söylemiş.

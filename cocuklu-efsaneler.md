@@ -1,3 +1,17 @@
+# Çocuklu Efsaneler
+
+* [Çocukları kim kaçırıyor? (2*)](#çocukları-kim-kaçırıyor-2)
+* [Küçük Japon kızı (3*)](#küçük-japon-kızı-3)
+* [Sakallı bebek doğmuş (2.5*)](#sakallı-bebek-doğmuş-25)
+* [Hugo'nun küfürbazı (3*)](#hugonun-küfürbazı-3)
+* [Vicdansız bakıcılar (2.5*)](#vicdansız-bakıcılar-25)
+* [Tren yolunun hayaletleri (3.5*)](#tren-yolunun-hayaletleri-35)
+* [Canavar düdüğüyle seks (2*)](#canavar-düdüğüyle-seks-2)
+* [Bana fotoğraf gönderin (2.5*)](#bana-fotoğraf-gönderin-25)
+* [Çıkartmalardaki LSD (2.5*)](#çıkartmalardaki-lsd-25)
+* [Gitti paracıklar (2.5*)](#gitti-paracıklar-25)
+* [Bebeleri kim kaçırıyo? (2.5*)](#bebeleri-kim-kaçırıyo-25)
+
 # Çocukları kim kaçırıyor? (2*)
 
 Amerika'da bir dönem, çocuklarının kaybolduğuna dair ailelerden gelen ihbar telefonlarının sayısında büyük bir artış görülmüş. Üstelik şikayetçi aileler, kısa bi süre sonra yine telefon açıp, "Gerek kalmadı, çocuğumuzu bulduk" diyorlarmış. Bu durum FBI'ın dikkatini çekmiş tabii. Ajanlar bu tip telefonları izlemeye almışlar. Yine böyle bir ihbar telefonu gelir gelmez, hemmen olay mahaline ulaşmışlar.
