@@ -1,4 +1,4 @@
-# Dindar bilgisayar
+# Dindar bilgisayar (3.5*)
 
 Amerika'da katolik kilisesinin yöneticileri, "Madem ki devir bilgisayar devri, o zaman çoook güçlü bi bilgisayar yaptırıp elimizde dinlerle ilgili ne kadar bilgi varsa yükleyelim, sonra da soralım bakalım, 'En iyi din hangisi?" Amerikalılar bu deney sonunda bilgisayarın kesinlikle hıristiyanlığı seçeceğinden eminmişler. Dertleri de, sonucu Dünya'ya açıklayıp hava atmakmış.
 
@@ -8,7 +8,7 @@ O dev bilgisayar tuhaf sesler çıkarıp haldır huldur günlerce çalışmış.
 
 Bu efsaneyi Serhat Ayan gönderdi. Sağolsun, varolsun :) 
 
-# Yumurtanın kabuğu
+# Yumurtanın kabuğu (2*)
 
 Din üzerine olan sayısız efsanenin en yaygınları yumurtanın kabuğunda, ağacın kesitinde ortaya çıkan Arapça Allah, besmele yazıları herhalde. Doğanın müminliğine en popüler örneklerden biri rahmetli Barış Manço'nun Afrika'daki ağaçlardan birinde bulduğuydu hatırlarsanız. Daha da komplike olanlar var tabii. Örneğin, üzerine birkaç kat boya da sürseniz boyaların dökülüp, ayetlerin ortaya çıktığı sunta parçası, kendiliğinden yıpranan cilt kapağının üzerinde Allah yazısının çıkması gibi...
 
@@ -20,25 +20,25 @@ Bi arkadaşın babaannesi bi gün namaz kılıyomuş. Kadıncağız secde etmiş
 
 ## Üyeler ne demiş?
 
-deniz ka: Elde Allah yazısı
+**deniz ka: Elde Allah yazısı**
 Herkeste var mı bilmiyorum ama (ben dahil) çoğu kişinin sol elinde başlayan ve sağ elinde sona eren bir "Allah" yazısı vardır. Amerikalılarda "God", Almanlarda "Gott" yazıyo mu bilmiyorum ama benim elimde yazıyor.
 
-Muhiddin YENİGÜN: Bal peteği
+**Muhiddin YENİGÜN: Bal peteği**
 Bence bu tür Allah lafızları içinde en ilginci, Kayseri'deki bir üreticinin bulduğu bal peteğinde yazılı olandır. O sıralar bal peteği olayını ülkeye duyuran Zafer dergisinde çalışıyordum. Bu yüzden yakından görme şansım oldu. Petekteki yazı öyle benzetme falan değil, bir hattatın elinden çıkmış gibiydi.
 
-ali dogan: Eski Roma'da bakirelere tecavüz edilirdi
+**ali dogan: Eski Roma'da bakirelere tecavüz edilirdi**
 Benim bildiğim İslam ülkelerinde idam edilecek kıza tecevüz edilip öldürülmez. Bunu zamanında, 60000 hristiyanı canlı canlı aslanlara atan(sayıda yanılıyor olabilirim) Roma imparatorluğu yaparmış. Bugünkü Avrupa hukukunun da temeli olan Roma hukuku bakire kızların öldürülmesini yasaklar. Bu nedenle hristiyan bakirelere önce cellatlar tecavüz eder sonra da öldürürür veya canlı canlı aslanlara atarlarmış.
 
-Selim Sevinç: İran'da varmış
+**Selim Sevinç: İran'da varmış**
 "Kızım Olmadan Asla" adlı kitapta, İran'da bakire kızları idam etmeden önce tecavüz eden bir birliğin olduğunu okumuştum.
 
-# İlahiyattaki dilenci
+# İlahiyattaki dilenci (3*)
 
 Olayımız İngiltere'de bi ilahiyat fakültesi geçmiş. Son sınıf öğrencileri bütün bi yıl boyunca "İsa'nın Hayatı" başlıklı bi ders almış. Öğrenciler yıl sonunda final sınavına geldiklerinde sınıfın kapısında bi not görmüşler. Kağıtta sınavın kampüsün diğer ucundaki bi anfide yapılacağı yazıyomuş. Duyuruyu görenler sınava geç kalmamak için koştura koştura yeni salonun yolunu tutmuş. Yeni anfinin olduğu binanın girişinde de hırpani kılıklı biri varmış. Adamcağız, "Allah rızası için yardım edin. Üç gündür ağzıma lokma girmedi" gibi şeyler söylüyomuş ama öğrenciler zaten sınava yetişme telaşında, hiiççç kimse ilgilenmemiş dilenciyle
 
 . Sınav saati geldiğinde hoca sınıfa girmiş, "Sınava gerek kalmadı. Hepiniz kaldınız. Seneye görüşmek üzere" demiş. Öğrenciler hiç bi şey anlamış taabii. İşin rengi sonradan ortaya çıkmış. Meğerse sınavı zaten yapmış hoca. Binanın girişindeki dilenci bi aktörmüş. Herif öğrencilerin İsa'nın erdemlerinden pay alıp almadığını test etmek için oradaymış. 
 
-# Yumurtayla Tanrı testi
+# Yumurtayla Tanrı testi (3*)
 
 Amerika'daki Kuzey Kaliforniya Üniversitesi'nde, hayatını insanları Tanrı inancından vazgeçirmeye adayan bi felsefe profesörü varmış. Bu herif bütün bi dönem boyunca öğrencilerine Tanrı'nın olmadığını kanıtlamaya çalışırmış. Her sömestr sonunda da, "Eğer aranızda hala Tanrı'ya inanan varsa hemen ayağa kalksın" diyerek bitirirmiş dersini. 20 yıl boyunca onun tersi düşünen pek çok öğrenci olmasına rağmen kimse ayağa kalkmaya cesaret edememiş. Çünkü hoca sözlerini bitirdikten sonra cebinden bir yumurta çıkarıp, "Afferin! Zaten eğer Tanrı gerçekten olsaydı işte bu yumurtanın kırılmasını önlerdi" diyerek yumurtayı yere doğru bırakırmış. Sonra da yumurtanın kırılmasını zevkle seyreder, kahkahalar atarmış. (pis adam) Ve maalesef, pek çok öğrenci bu gösteriden etkilenir, Tanrı'nın varlığı konusunda şüpheye düşermiş.
 
@@ -46,7 +46,7 @@ Ancaaak, 20 yılın sonunda "mümin" bir öğrenci, profesörün nasıl bi kişi
 
 Sınıftaki herkes nefesini tutmuş. Herşey ağır çekim gibiymiş. Yumurta yere doğru düşmüş düşmüş düşmüş ve yere çarpıp zıplamış, or'dan bi daha gerisin geri aynı hızla yere çarpmış ama KIRILMAMIŞ! Bunu gören felsefe profesörü ne yapacağını bilemeden, sararmış suratını öğrencilerden gizlemeye çalışıp sınıftan koşarak kaçmış. Kalan öğrenciler, "koyu katolik" gencin önderliğinde o gün ve o gece, sabaha kadar ilahiler söylemiş sınıfta. 
 
-# Cehenneme açılan kuyu
+# Cehenneme açılan kuyu (2.5*)
 
 Çeşitli milletlerden bi jeolog ekip Sibirya'da araştırma yapıyomuş. Özel aletlerle yerin dibini delip çıkardıkları taş örnekleriyle yeryüzünün yapısını inceliyolarmış. Bunlar bi gün dele dele 14 kilometre 400 metreye kadar inmişler. Yalnız bu derinliğe ulaşıldığında bi tuhaflık olduğu farkedilmiş. Delici aletin ucu sanki bir boşluğa denk gelmişçesine boşa dönüyomuş.
 
@@ -56,13 +56,13 @@ Sebebini pek anlayamamışlar ama bazıları, "dünyanın merkezindeki boşluğa
 
 Dini efsaneler hıristiyanlarda da çok yaygın. Bu en çok anlatılanlardan biri. Doksanlı yılların başında ortaya çıkmış. İlginç olan geyiğin kaynağındaki araştırmanın aslında doğru olması. Ancak rakamlar saptırılmış. Deliğin boyu 14.4 değil 12 kilometre, dipteki ısı ise efsanedeki gibi 2000 değil sadece 180 dereceymiş. Ama daha da önemlisi delme işlemi bir boşluğa gelindiği için değil, amaçlanan derinliğe ulaşıldığı için durdurulmuş. Ve proje ekibinin araştırma bulgularını ortaya koyduğu "Scientific American" adlı dergide çıkan makalede "cehennem çığlıkları"ndan falan hiç bahsedilmiyormuş. 
 
-# Amarika'nın Başkanı
+# Amarika'nın Başkanı (2.5*)
 
 Kenedi var ya abicim. Başkan yaa. Hani Amarikanın başkanı. Öldürdüler bu adamı biliyosun. Kim yapmış bunu peki onu biliyo musun? (Yazıldığı gibi okunur) Cia abicim Cia. Amarikanın Mit'i. Yaa... Peki neden öldürmüş biliyo musun? Bu adamcağız gençliğinde müslüman bi arkadaşından etkilenip dinini değiştirmiş. Namazında niyazında bi adam olmuş. Ama adamın idealleri var, politikada başa oynamak istiyo. Taabi, ben müslümanım dese kimse gözünün yaşına bakmıycak. Saklamış bu da İslamiyet'i seçtiğini. Hatta karısından bile saklamış adamcağız. Allah yürü ya kulum deyince başkanlığa kadar gelmiş. Ama yine de herkesten gizli namazını kılıyo, orucunu tutuyomuş. Ramazanda da midem bozuk deyip reddediyomuş ikram edilen yemekleri. Ceketinin üst cebinde de sürekli küçük bi Kur'an-ı Kerim taşıyomuş Kenedi. Yalnız kaldı mı, hemen çıkarıp Kur'an okuyomuş.
 
 Bi akşam yatarken Kur'an'ı her zaman yaptığı gibi yastığının altına koymuş. Gece acil bi'şey olunca kalkıp, Beyaz Saray'a gitmiş bu. O telaşla da unutmuş Kur'an-ı Kerim'i. Sabah da karısı tesadüfen görmemiş mi Kur'an'ı? Yaa, görüyo musun sen aksiliği. Kadın da cin gibi. Hemen anlamış bunun müslümanların kitabı olduğunu. Sonra da sabahlığını giyip Cia'nın başkanını aramış. Kur'an'ı gösterip, "Bunu Başkan'ın yastığının altında buldum mister" demiş. Cia'nın başkanı panik olmuş taabi. Koskoca Amarika'nın başkanı müslüman olur mu hiç? Bi duyulursa hıristiyanlar Kenedi'den etkilenip müslüman olur diye accayip korkmuşlar. N'apıcaklar? Düşün+taşın, bi çıkar yol bulamamışlar. İçleri kan ağlaya ağlaya adamcağızı bi haftaya kalmadan öldürmüşler canım abim be. Sırf müslüman diye. Görüyo musun gavurun yaptığını... 
 
-# Edison'un büyük sırrı
+# Edison'un büyük sırrı (2.5*)
 
 Edison ölüm döşeğinde... Yatağın başındaki en baba profesörler meraktan inim inim inliyomuş. Sonunda biri dayanamayıp ağzındaki baklayı çıkarmış: "Yahu Edison, bak ölüyosun. Tanrı aşkına söyle. Nasıl buldun bu elektriği, ampulu?" Mucit baba zaten son nefesini vermek üzereymiş, "Bu zamana kadar sakladım da n'oldu? Şunlara söyleyim de gider ayak bi hayır olsun" diye düşünmüş.
 
@@ -72,10 +72,10 @@ Neyse abicim, Edison beş dak'ka sonra hakkın rahmetine kavuşmuş. Adamların 
 
 ## Üyeler ne demiş?
 
-ahmet karaca: Havasını almış
+**ahmet karaca: Havasını almış**
 Yüzde yüz yalan! Çünkü Edison, Madam Cury, Pastör hiç bir zaman bir araya gelmedi. İkincisi ampülü nasıl bulduğu hakkındaki en önemli söylenti şöyledir. Edison yoğun trans halinde düşünüyormuş. Onun çok çalıştığını düşünen karısı "Çık, biraz hava al" demiş. Bu söz Edison'da çağrışım oluşturmuş ve ampülün içindeki havayı almış. Böylece ampül içindeki akkor telin oksijenle yanmasını engellemiş ve ampülü icat etmiş. 
 
-# Kusto'nun müslümanlığı
+# Kusto'nun müslümanlığı (3.5*)
 
 Kaptan Kusto'yla ekibi Cebelitarık'ta araştırma yapıyomuş. Bi de görmüşler ki boğazda iki akıntı karşı karşıya geliyo; biri tatlı, biri tuzlu ama bunlar hiç karışmadan, tatlısı alttan, tuzlusu üstten paşa paşa akıyomuş. Kafayı yemiş adamlar. Ulan nasıl olur, nasıl olur? Koca koca kitapları karıştırmışlar açıklaması yok! Böyle bi'şey litetatüre geçmiş değil.
 
@@ -87,25 +87,25 @@ Kaptan Kusto, "ertesi gün müslüman olan" ünlülerin en ünlüsü belki de. "
 
 ## Üyeler ne demiş?
 
-torgal kimmerya: Kusto neden gizliyordu?
+**torgal kimmerya: Kusto neden gizliyordu?**
 Fransa'da yaşayan bir tanıdığım anlatmıştı. Kusto gerçekten müslüman olmuş ama bunu gizliyormuş. Çünkü denizlerde araştırma yapması için gereken parayı vakıflardan alıyormuş, eğer müslüman olduğunu alenen beyan ederse bu yardımlar kesileceğinden söylemiyormuş.
 
-gizem topcuoglu: Müslüman olmuş ama...
+**gizem topcuoglu: Müslüman olmuş ama...**
 Adam müslüman olmuş. Ama Kızıldeniz'de ve Kuzey Afrika kyılarında falan araştırma izinlerini kolayca almak için müslüman olmuş diye duydum ben.
 
-bahtiyar vahapzade: Furkan suresi 53. ayet
+**bahtiyar vahapzade: Furkan suresi 53. ayet**
 Bur'da gerçek olan bir şey varsa; o da Kur'an'da Furkan suresinin 53. ayetinde suların birbirine karışmadığından bahsediliyor olmasıdır. Yalnız ben akla daha yatkın olan şu versiyonu duymuştum: Kusto Kur'an'da bunun olduğunu duyunca, "O halde Kur'an hak kitaptır" demiş.
 
-gökhan saraçoğlu: Kur'an'da şöyle diyor...
+**gökhan saraçoğlu: Kur'an'da şöyle diyor...**
 Bir tatlı, susuzluğu giderici, öbürü tuzlu ve acı. İki denizi salıveren, birbirine karışmadan akıtan, fakat aralarına bir engel, aşılmaz bir sınır koyan ''O'' dur. (Furkan suresi, 53. ayet)
 
-yavuz ekşi: Sular karışıyor
+**yavuz ekşi: Sular karışıyor**
 Bir kitapta okuduğuma göre; Atlas okyanusuyla Akdeniz'in suları Cebelitarık'da karışıyor. Eğer karışmasaydı, Akdeniz bir tuz gölü haline gelirmiş. Bu nedenle de içinde yaşayan canlılar ölürmüş.
 
-Çağdaş Saraç: Sular bal gibi de karışıyor
+**Çağdaş Saraç: Sular bal gibi de karışıyor**
 Arkadaşlar, delinin biri bir kuyuya taş atmış, kırk akıllı çıkartamamış. Kaptan Kusto'nun belgeselinin bu konuyla ilgili bölümünü izlemeden ahkam kesilirse işte böyle her kafadan bir ses çıkar. Kusto, Cebelitarık Boğazı'nda dipte iki akıntının (sadece dipte, üstte değil) çarpıştıklarını göstermek için suyun altında bir paraşüt ile deney yapıyor. Paraşüt suyun dibinde iki akıntıyla karşılaşınca eğilip büzülüyor. Yani deneyi sadece iki adet akıntının varlığını ispat etmek için yapıyor. İki suyun karışmadığıyla ilgisi yok. Ayrıca hangi su tatlı, hangisi tuzlu arkadaşlar? İkisi de tuzlu su. Biri Akdeniz, diğeri Atlas okyanusu. Bu iki su, sular seller gibi karışıyor birbirine. 
 
-# Uzayda ezan sesi duydum
+# Uzayda ezan sesi duydum (3*)
 
 Sene 1969. İnsanoğlu ilk aya inme olayına giriyo. Neil Armstrong'un uzay aracı Apollo 11, 16 Temmuz 1969'da ayın yörüngesine girmiş. Ertesi gün aya inecek. Herif accayip heyecanlı. Boru değil, aya ayak basıcak. O gece uyumaya çalışırken derinlerden derinlerden bi ses geldiğini farketmiş. Ama Allah'ın uzayı, or'da hava yok ki ses olsun. Bizim Neil de biliyo bunu taabi. Nefesini tutup kulaklarını dikmiş. Yahu basbayağı şarkı gibi bişeymiş bu. Uzayın boşluğundan dalga dalga geminin içine kadar geliyomuş.
 
@@ -115,17 +115,17 @@ Planlanan tarihte dünyaya dönülmüş. Armstrong hiiiççç kimseye bahsetmemi
 
 ## Üyeler ne demiş?
 
-Emin TANSU: Armstrong "Yok öyle bişey" demiş.
+**Emin TANSU: Armstrong "Yok öyle bişey" demiş.**
 Malumunuz, bundan birkaç gün önce (18 Kasım 2000) Neil Armstrong bir konferansa katılmak üzere İstanbul'a geldi. Konferansa katılan arkadaşlardan biri bu olayı kendisine sorduğunu ama "Öyle bir şey olmadığı" cevabını aldığını söyledi. Yine de bilinmez tabii..
 
-kutay kalınlı: Ezanın sebebi
+**kutay kalınlı: Ezanın sebebi**
 Soğuk savaş esnasında hani Ruslar bir-sıfır öne geçmişlerdi ya uzaya adam yollayınca. İşte Ameriikalılar, "Naapalım, naapalım" diye düşünürken "Biz de aya adam yollayalım" demişler. Ama bakmışlar yemiyo, "O kadar da abartmamak lazım" diyerekten bi plan yapmışlar. Bi gece vaktine denk getirerek Büyük Sahra çölünün ortasına mekiği indirmişler. Ama bundan Neil'in de haberi yok. E, imsak vakti tabii ezan gelmiş kulağına. Olay buymuş.
 
-Güneş Karacasu: Uzayda ses olmaz
+**Güneş Karacasu: Uzayda ses olmaz**
 Sesin iletimi dalga şeklinde olduğundan iletimi için mutlaka bir maddeye ihtiyacı vardır. Kısacası, boşlukta (havasız ortamda, uzayda, ayda) ses iletilemez. Bu yüzden Ay'da duyulacak tek ses insanın uzay elbisesinin kaskındaki hoparlörden gelen sestir.
 
-ethem böcük: Ezanı bizzat duymuş
+**ethem böcük: Ezanı bizzat duymuş**
 Efsanenin çoğu aynen benim dinlediğim gibi. Yalnız Armstrong ezanı belgeselde değil Kahire'de gezerken duymuş.
 
-xinga xinga: Aya gidilmedi
+**xinga xinga: Aya gidilmedi**
 İlk aya ayak basma olayi insanlik tarihinin en büyük yalanlarındandır. Gerçek birgün ortaya çıkacak. 

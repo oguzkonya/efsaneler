@@ -1,4 +1,4 @@
-# Evinizde truva atı var
+# Evinizde truva atı var (2.5*)
 
 Yaz tatiline çıkan zengin bir aile evlerine göz kulak olması, arada sırada havalandırması için evlerinin anahtarlarını her yıl olduğu gibi komşularına bırakmış. Güle oynaya tatile çıkmışlar. Aradan bir iki hafta geçmiş, zengin çiftin dönmesine az bir süre kala komşunun kapısı çalınmış. Kapıda ellerinde şık bir kanepe olan iki adam varmış. "Efendim" demişler, "biz falanca mobilya şirketinden geliyoruz. Komşunuzun bir çekyat siparişi vardı Ancak evde yoklar". Komşu kadın da tatilde olduklarını söylemiş.
 
@@ -10,7 +10,7 @@ Bizim zengin çift tatilden dönüp evlerine girdiklerinde şok olmuşlar. Çün
 
 Bu efsaneyi Bülent Özdemir gönderdi. Sağolsun, varolsun :) 
 
-# Saatiniz kaç?
+# Saatiniz kaç? (3*)
 
 İzmir'de genç güzel bir kadın otobüs durağında gündüz saatinde bekliyormuş. Durakta kendinden başka üç adam daha varmış. Derken adamlardan iyi giyinimli olanı yanına gelmiş ve "Buranın yabancısıyım. Balçova'ya buradan otobüs var mı?" diye sormuş. Kız "Var" deyip otobüsün numarasını falan söylemiş. Adam teşekkür edip diğer adamların yanına gitmiş.
 
@@ -24,7 +24,7 @@ Kızın ifadesi ise iyice şüphe uyandırmış. "Adamın biri otobüs sordu, so
 
 Bu efsaneyi Zeynep Al gönderdi. Sağolsun, varolsun :) 
 
-# Ceset sait
+# Ceset sait (2*)
 
 Yıllar önce Ankara'yı haraca kesen Sait adında kabadayı varmış. Ankara'nın ne kadar meyhanesi, barı, pavyonu varsa bu kabadayıya ve adamlarına para vermeden çalışamazmış. Gel zaman git zaman pavyon sahiplerinin canına tak etmiş.
 
@@ -38,7 +38,7 @@ Polis, Sait'in adamlarını vuranların pavyon sahiplerini de vurduğuna karar v
 
 Bu efsaneyi Demircan Emiroğlu gönderdi. Sağolsun, varolsun :) 
 
-# Baba Ferit
+# Baba Ferit (3*)
 
 1960'lı yıllarda İstanbul'da Baba Ferit namıyla anılan gözüpek, astığı astık kestiği kestik bir kabadayı varmış. Baba Ferit geçimini kanundışı yollardan iş yapan suçlulardan aldığı haraçlarla sağlarmış. Aldığının büyük bölümünü de fakir fukaraya dağıtırmış. Üstelik ite, kopuğa karşı garibanları korurmuş. Geniş gönüllü, babayiğit bir adammış kısacası.
 
@@ -52,7 +52,7 @@ Baba Ferit gencin söylediğini kılını kıpırdatmadan büyük bir sakinlikle
 
 Bu efsaneyi Engin Yücel gönderdi. Sağolsun, varolsun :) 
 
-# Yetişin! Torunum bayıldı
+# Yetişin! Torunum bayıldı (3*)
 
 Eskişehir'in büyük süpermarketlerinin birinde genç bir kız alışveriş yapıyormuş. Kızın yanına başörtülü, yaşlıca bir kadın yanaşmış. Bir süre kızı süzdükten sonra genç kıza; "Evladım, bu deodorantı torunuma aldım. Ama bu aldığım iyi midir bilemedim. Koklayıp, torunumun sevip sevmeyeceğini söyler misin" diye sormuş. Genç kız yaşlı başlı kadından kuşkulanmamış haliyle. Ama deodorantı koklar koklamaz olduğu yere yığılıvermiş.
 
@@ -64,13 +64,13 @@ Bu efsaneyi Nevin Öz gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-Çağrı Güven: Doğrudur
+**Çağrı Güven: Doğrudur**
 Bu olay yaklaşık 5-6 ay önce Eskişehir'de gerçekten oldu. Hatta zamanında ulusal ve yerel basına da yansıdı.
 
-Uygar Çehreli: Organ mafyası
+**Uygar Çehreli: Organ mafyası**
 Bu efsanenin farklı bi versiyonunu anlatmışlardı: Bir genç durakta beklerken yanına dilenci kılıklı biri gelmiş. Gençle sohbete başlamışlar. Bir ara yediği bisküviden ikram etmiş. Genç adamı kırmamak için bir tane almış. Tam o sırada otobüs gelmiş. Genç otobüse biner binmez bayılıvermiş. Otobüsteki vatandaşlar tarafından hastaneye kaldırılmış. Sonradan bu bisküvi teklif eden kişinin organ mafyasının adamı olduğu ve etrafta birkaç arkadaşının daha beklediği anlaşılmış. Eğer o anda otobüs gelmeseymiş çocuğu hastaneye kaldırma bahanesiyle kaçırıp organlarını sökeceklermiş.
 
-# Uluslararası Dolandırıcı
+# Uluslararası Dolandırıcı (2.5*)
 
 Amerikalı bir dolandırıcı mafyadan tefe usulü 1 milyon dolar borç almış. Parayı cebine attığı gibi soluğu Fransa'da almış. Çok lüks bir otelde bir suit kiralamış. Otele kayıt olurken kendisini Amerikalı milyoner bir petrolcü olarak tanıtmış. Dolandırıcı zengin petrolcü rolünün tüm gereklerini yerine getirmiş. Otele lumizinle gelip gitmiş, bol keseden bahşiş dağıtmış, en pahalı mağazalardan alışveriş yapmış falan.
 
@@ -84,10 +84,10 @@ Bu efsaneyi Ray Luca gönderdi. Sağolsun, varolsun:)
 
 ## Üyeler ne demiş?
 
-elif akgül: İntikam Mleği'nde de vardı
+**elif akgül: İntikam Mleği'nde de vardı**
 Bu hikaye Sidney Sheldon'un "İntikam Meleği" adlı romanında da vardı. Ancak dolandıcı kadındı. Elması ilk olarak kocası adına alıyor, sonra da bir diplomatın karısı olarak satıyordu. Böylece söz konusu mücevheri satan dükkana oldukça yüklü bir kazık atıyordu.
 
-# Arabamızı geri ver
+# Arabamızı geri ver (2.5*)
 
 Amerika'da adamın teki sorhoş olduğu halde evine arabasıyla dönmeye kalkmış. Zikzaklar çizerek giderken trafik polislerine yakalanmış. Polisler sarhoş olduğu her halinden belli olan adamı, düz çizgi üzerinde yürütmüşler, nefes örneği filan almışlar. Bu sırada biraz ileride büyük bir kaza olmuş. Polisler sarhoş adamı orada bırakıp hızla kaza mahaline doğru koşmuşlar. Adam sarhoşmuş ama bu fırsattan yararlanacak kadar da kafası çalışıyormuş. Hemen arabasına atlayıp, arkasına bakmadan oradan kaçmış. Eve gidip sızmış.
 
@@ -97,7 +97,7 @@ Sabah kapısı çalınınca yatağından fırlamış, kapıyı açmış. Sabahı
 
 Bu efsane Matt Damon ve Ben Affleck'i meşhur eden Oscarlı "Good Will Hunting" adlı filmde kullanılmıştı. Efsane filmden daha eski. Yani filmin senaryosunu yazan Damon ve Affleck, efsaneyi kullanmış. Ama şehir efsaneleri anonim ürünler olduğu için kimse kimseden copyright istemiyor. 
 
-# Bedavaya gelen Porsche
+# Bedavaya gelen Porsche (2.5*)
 
 Bir cuma akşamüstü adamın biri Berlin'in ünlü bir oto galerisine girmiş. Galeri sahibine vitrindeki son model kırmızı Porsche'u almak istediğini söylemiş. Fiyat konusunda pazarlığa girişip, 400 bin marka anlaşmışlar. Adam bu parayı çekle ödemek istemiş. Ancak galerici, bankaların kapalı olduğu için çekin karşılığını kontrol edemeyeceğini söylemiş. Bu nedenle de çeki kabul etmemiş. Fakat adam parayı çekle ödemekte ısrar etmiş. Saygıdeğer bir iş adamı olduğunu söylemiş ve kanıt olarak kartvizitini göstermiş. Kartvizitte adamın büyük ve tanınmış bir süpermarketler zincirinin yönetim kurulu başkanı olduğu yazıyomuş.
 
@@ -113,9 +113,10 @@ Bu efsaneyi Tayfun Gerdan gönderdi. Sağolsun, varolsun:)
 
 ## Üyeler ne demiş?
 
+**özkan Dilmen: Uyanık adam**
 Adamın biri bankaya giderek 1000 dolar kredi istemiş. Banka yetkilisi kredinin teminatını sormuş doğal olarak. Adam da bankanın önünde duran kırmızı Porsche'un anahtarlarını vererek; "Size teminat olarak başka bir şey veremem" demiş. Bunun üzerine, Porsche bankanın özel kapalı otoparkına çekilerek rehin alınmış. İki hafta sonra adam borcunu tek seferde ödemiş. O saate kadar müşterisi hakkında araştırma yapıp, inanılmaz zengin bir iş adamı olduğunu öğrenen banka yetkilisi "Kusura bakmayın beyfendi, sizin gibi zengin bir iş adamı nasıl olur da 1000 dolara ihtiyaç duyar" diyerek şaşkınlığını belirtmiş. Adam, pişkin pişkin sıratarak "Sizin otopark fiyatlarından haberiniz var mı? Arabayı iki hafta otoparka koysaydım zararım daha büyük olurdu" demiş.
 
-# Hırsızlığın böylesi
+# Hırsızlığın böylesi (3.5*)
 
 Hırsızın biri, bi apartmanın çatısına çıkıp gözüne kestirdiği bi dairenin anten kablosunu kesmiş. Evin ahalisi o sırada televizyon seyrediyomuş. Yayın kesilince, TV'yi bir-iki kurcaladıktan sonra, "Bozuldu heralde" diye düşünüp, yatmışlar.
 
@@ -131,10 +132,10 @@ Bu efsaneyi Precious cure gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-gerekli diil: Leman'da çıktı
+**gerekli diil: Leman'da çıktı**
 Bu hikayenin aynısını ben de Leman dergisinin "Kırık Leblebi" isimli köşesinde çizgi hikaye olarak okumuştum. Hatta yazar uydurdu zannetmiştim. Meğer efsaneymiş.
 
-# Gurbetçinin başına gelen
+# Gurbetçinin başına gelen (2.5*)
 
 Almanya'da çalışan gurbetçinin biri Türkiye'ye tatile gelmiş. Arabasıyla İzmir'de gezerken buna arkadan bi araba çarpmış. Şoförler arabalardan inip hasara bakmışlar. Vuran adam gurbetçiye, "Suç bende. Senin arabanın tamir parasını ben vericem" demiş ve bi tamircinin adresini vermiş. "Sen arabayi tamir ettir. Sakın para filan da ödeme, ben hallederim" demiş. Gurbetçi arabasını verilen adrese götürüp tamir ettirmiş.
 
@@ -146,10 +147,10 @@ Bu efsaneyi Jale Öztürk gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-ali erk: Alman turistlerin başına gelmiş
+**ali erk: Alman turistlerin başına gelmiş**
 Bu olayı bir kaç yıl önce yanlış hatırlamıyorsam Sabah Gazetesi'nde Hıncal Uluç'un köşesinde okumuştum. Ama o yazıda olayın bir gurbetçinin değil, Türkiye'ye gelen Alman bir ailenin başından geçtiği anlatılıyordu. 
 
-# Otobüste dehşet
+# Otobüste dehşet (2.5*)
 
 İzmir'de bir belediye otobüsünde kadının biri yanında oturan adamın karnını tutarak iki büklüm oturduğunu farketmiş. Adamın tipinden tırsmış önce, ama dayanamamış ve adama "Beyefendi iyi misiniz" diye sormuş. Adam daha bir önüne eğilmiş. Hiç ses çıkartmıyormuş. Kadın, bayıldığına kanaat getirip adama dokunmuş ve "Kötüyseniz, şoföre söyleyelim, dursun" demiş. Ama adam aniden doğrulup "Sen kendi işine bak" diye resmen hırlayınca, kadın iyice korkmuş.
 
@@ -161,10 +162,10 @@ Bu efsaneyi Kaan Meca gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-salih dural: Bu olay oldu
+**salih dural: Bu olay oldu**
 Benim bildiğim kadarıyla bu olay İzmir Yeşilyurt taraflarında 1-2 yıl önce oldu. Yani efsane felan değil, gerçek.
 
-# Cin fikirli mahkum
+# Cin fikirli mahkum (3.5*)
 
 Amerika'da, müebbet hapis cezasına çarptırılan bi adam, sabah akşam hapishaneden kaçmanın yollarını düşünüyomuş. Bi gün bahçede volta atarken gardiyanların bi tabutu cenaze arabasına yüklediğini görünce nihayet aylardır aradığı fikri oracıkta bulmuş. Burası büyük bi cezaevi olduğu için her hafta mutlaka 2-3 kişi Tanrı'nın rahmetine kavuşuyomuş. Mahkum, gardiyanlardan birine, cenaze olduğu bi gün tabuta konularak kaçırılması karşılığında epey yüklüce para teklif etmiş. Gardiyan korktuğundan başta biraz mızırdanmış ama sonra paranın cazibesine kapılıp kabul etmiş.
 
@@ -178,13 +179,13 @@ Bu efsaneyi Arman Özkan gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-Gökhan Aşçıoğlu: Alaca Karanlık Kuşağı
+**Gökhan Aşçıoğlu: Alaca Karanlık Kuşağı**
 Bu olay, aslında bir dönemin sevilen televizyon dizisi Alacakaranlık Kuşağı'ndan alınmış. Eskiden TRT'de seyrederdik. Şimdi efsane olmuş demek ki.
 
-mengu gulmen: Hitchcock
+**mengu gulmen: Hitchcock**
 Bu sehir efsanesi değil, Alfred Hitchcock'un bir kısa filmi. Filmde anlaşmayı yapan ve ölen gardiyan değil doktordur. Mahkum ise bir kadındır. Doktorun kataraktı vardır ama ameliyat olacak parayı bulamamaktadır. Hapishane yönetimiyse doktoru pek sallamamaktadır. Kadın doktora "Benim param var. Beni dışarı çıkart, ben de seni ameliyat ettireyim" der. Fakat yalan söylemektedir. Parası yoktur. Doktor, "Peki o zaman yarın, kilisenin çanları çaldığında buraya gel ve tabutlardan birinin içine gir, insanlar gittikten iki saat sonra seni gelip alacağım" der. Kadın sevinir falan, gerisi aynı hikaye. Ha bir de çakmak değil kibrit.
 
-# Sağ tek, sol tek
+# Sağ tek, sol tek (2.5*)
 
 Adamın biri yurtdışından Timberland marka ayakkabı ithal edicekmiş. Ama öyle böyle değil, 20-30 bin çift ayakkabı. Aşağı yukarı 100 dolara satılan bu ayakkabıların vergisi de korkunçmuş taabi. Girişimci adam, "Naapsam da bu vergiden yırtsam" diye düşünürken aklına bi hinlik gelmiş. Amerika'daki fabrikayı aramış ve ayakkabıların sadece sol teklerini konteynere koyup İzmir limanına göndermelerini istemiş.
 
@@ -200,10 +201,10 @@ Bu olay Sülün Osman'a maledilerek de anlatılır. Galata Köprüsü ve Dolmaba
 
 ## Üyeler ne demiş?
 
-Onur Aydogan: Efsane değil, gerçek!
+**Onur Aydogan: Efsane değil, gerçek!**
 Valla bu efsane değil, gerçek bir hikayedir. İthalatla uğraşan hemen hemen herkes bunu bilir. Yalnız bu olay, Timberland markası altında değil, isimsiz bir marka ile 1997 yılında, gümrük vergileri çok yüksekken yapılmıştır. Daha ilginci, bu ithalatı gerçekleştiren kişi benim yakın bir arkadaşımın eniştesidir ve tamamı ile gerçek olup dilden dile dolaşırken bazı farklılıklar göstermiştir.
 
-# Akıllı purocu faka bastı
+# Akıllı purocu faka bastı (3.5*)
 
 Amerika'da bi adam çok değerli ve ender bulunan purolardan bir kutu almış ve bunları her türlü yangına karşı sigortalattırmış. Adam purolarını keyifli keyifli içmiş, sonra da tam sigortanın son taksidinin ödeme günü geldiğinde, "Purolarım seri yangınlar sonucunda yandı. Zararımı karşılayın" diyerek sigorta şirketine başvurmuş. Şirket taabi ödeme yapmayı reddetmiş. Gerekçe de, puroların "alışılmış" yöntemlerle yanmasıymış. Bunun üzerine adam da mahkemeye başvurmuş.
 
@@ -215,13 +216,13 @@ Bu efsaneyi Yahya Yardım gönderdi. Sağolsun, varolsun :)
 
 ## Üyeler ne demiş?
 
-mehmet okan senkal: Hocamız anlatmıştı
+**mehmet okan senkal: Hocamız anlatmıştı**
 İstanbul Üniverstesi'nde okurken bir hocamız bu hikayeyi, avukatlığın çok ince bir zeka istediğini göstermek için anlatmıştı. Olay kesin doğru yani.
 
-camel camel: Kasti hasar
+**camel camel: Kasti hasar**
 Sigortacılık yaptığım için size şunu rahatça söyleyebilirim ki; her türlü poliçede dünyanın neresinde olursa olsun kasti yapılan hiçbir hasar sigorta kapsamında değildir. Bu nedenle böyle bir olayın gerçek olması imkansızdır. Hele hele sigortacılığın anavatanı İngiltere'de hiç olmaz.
 
-# Hacıhüsrev'in yankesicileri
+# Hacıhüsrev'in yankesicileri (2.5*)
 
 Okuldan bi arkadaş Bebek kaavenin önünde oturuyomuş. Bunlar muhabbet ederken bi kapkaççı arkadaşın cep telefonunu kapıp kaçmış. Aslında zengin çocuk, koymaz ama cebin telefon rehberinde bissürü önemli telefon varmış. Bu çocuğun abisi de biraz karanlık bi tip. Hemen abisini aramış taabi. Abisi, "Hiç kafana takma, hallederzi. Bana iki saat müsaade et. Sonra da Asayiş Şube'ye gel" demiş.
 
@@ -233,10 +234,10 @@ Bu, en meşhur suç geyiğimiz... Hikayenin başka bir versiyonunda da adamın (
 
 ## Üyeler ne demiş?
 
-oleg kulik: İstihbaratçi tanıdık
+**oleg kulik: İstihbaratçi tanıdık**
 Valla bu nüfuzlu tanıdık olayı tamamen doğru. Benim ev arkadaşımın arabası çalınmıştı. Eski istihbaratçı olan apartman yöneticimize olayı saat gece 1 dolaylarında anlattık. Sabah saat 5'te Bahçelievler karakolundan aradılar. Arabayı bulmuşlardı.
 
-# Öğrencilik hali
+# Öğrencilik hali (2.5*)
 
 Gazi Üniversitesi'nde okuyan bi çocuğun sınavları varmış. Akşam da bi'kaç arkadaşı bizimkine ders çalışmaya gelecekmiş. Çocuk bankamatiğini kaptırdığından cebinde beş kuruş parası yokmuş. E, akşam da misafiri var, ne yapıcak? "Migros'tan akşamlık bi şeyler uçurayım işte, nolucak, yapmadığımız şey mi sanki" demiş. Bunun kocaman bi şapkası varmış. Hani olur ya, ciks işi, önü siperlikli falan... Tavukların olduğu bölüme gitmiş, dondurucudan bi bütün tavuk alıp şapkasının altına koymuş.
 
@@ -244,16 +245,16 @@ Usulü öyledir ya, içeride biraz dolaşıp, bi çubuk kraker, çiklet falan bi
 
 ## Üyeler ne demiş?
 
-Onur yaz: Gerçek olabilir!
+**Onur yaz: Gerçek olabilir!**
 Ben Gazi Üniversitesi'nde okuyorum. Gerçekten de okulun yanında bir Migros var. Ve gerçekten de parasız kalan arkadaşlar ara sıra ufak eylemlerde bulunabiliyorlar. Belki de efsaneyi çıkaran Gazi Üniversitesi'ndedir. Kimbilir?
 
-# Sakkın uyarmayın
+# Sakkın uyarmayın (2.5*)
 
 Bizim bi arkadaşın babası gece işten dönüyomuş. Bi ara karşıdan farları yanmayan bir araba geldiğini farketmiş. Çift yönlü bi yolmuş bu. Yani araçlar sollama da yapabiliyomuş. Çocuğun babası kornaya basıp, farlarını yakıp söndürerek ışıksız arabayı uyarmak istemiş. Sen misin uyaran, bu araba hemen geri dönmüş ve arkadaşın babasının arabasına arkadan gelip GÜMM diye çarpmış. İçinde de gençten bi oğlan varmış. Üstelik çarpmakla da kalmamış, sollayıp ateş etmeye başlamış. Arkadaşın babası accayip korkmuş taabi. Hemmen yan yollardan birine sapıp, kurtarmış canını.
 
 Sonra en yakın karakola gitmiş şikayet için. Polisler buna, "Yahu ucuz kurtulmuşsun, bizim bölgede her yıl en az 15-20 kişi bu sebepten öldürülüyo" demiş. Meğerse çetelere yeni katılanlar için yapılan bi sınavın içine düşmüş arkadaşın babası. Yeni üye, ışıklarını söndürüp yola çıkarmış. Onu farlarıyla ilk uyaran arabayı da hedef seçermiş. Taabi amaç öldürmekmiş. Zaten bunu beceremeyenin bi ikinci şansı yokmuş, alınmazmış çeteye. Aslında o civarda bilinirmiş bu. Onun için herkes böyle bi araba gördüğünde gazlayıp gidermiş ama arkadaşın babası ne bilsin! Allahtan şansı varmış da kurtarmış paçayı. Yahu böyle de pisi pisine ölüm olur mu be! 
 
-# Pompalı ceza
+# Pompalı ceza (2.5*)
 
 Yolunuz Taiwan'a düşerse aman ha özellikle ıssız sokaklarda cebinizde en az bi'kaç bin dolarla gezin, aksi halde ülkenize sıkı bi Uzakdoğu anısıyla dönersiniz. Çünkü, Taiwan'da yolunuzu kesen çete üyeleri eğer üzerinizden çıkan parayı beğenmezse sizi tuhaf bi yöntemle cezalandırıyomuş.
 
@@ -265,7 +266,7 @@ Gazetelere yansıdığına göre, cebinde beş doları olan, saatsiz, altın kol
 
 Bu korkunç geyiğin diğer bi versiyonu ise, "Eylemcilerin para pul derdi yok, sadece Satanist oldukları için böyle bi'şeyi yapıyolar" diye anlatılıyomuş. Ancak bu haliyle anlatıldığında kurban mutlaka ölmüş oluyomuş. Efsane anlatıcıları hikayenin finalini, "Adamlar, şeytana bağlılıklarını ispatlamak, sırf günah olsun diye günah işlemek için pompalaya pompalaya insanları öldürdükten sonra kalplerini alıp ayinlerinde kullanıyolarmış" diye bağlayarak çarpıcılığı arttırmak için ellerinden gelen gayreti gösteriyolarmış. 
 
-# Vah zavallı hırsızcık
+# Vah zavallı hırsızcık (2.5*)
 
 Bi karavan parkının sakinleri bi sabah en dipteki karavanların birinin yanında boylu boyunca yatan bi adam bulmuşlar. Adamı başta sarhoş olup sızan biri sanmışlar, çünkü büyük bi kusmuk gölünün ortasında yatıyomuş herif. Ama elindeki bidondan ve hortumdan, daha da önemlisi kapağı açılmış depodan hırsız olduğu anlaşılmış.
 
@@ -275,7 +276,7 @@ Meğer herifçioğlu, olmadık bi kazaya kurban gitmiş. Deposundan benzin çalm
 
 Bu efsane seksenli yılların başında ortaya çıkmış. O tarihlerde ABD'de yayınlanan folklor kitaplarında da yer alıyor zaten. İşin matrak tarafı bu geyik, acar bi ajans muhabiri tarafından doksanların başında gazetelere geçilmiş ve tufaya düşen Amerikan gazeteleri Orlando Tribune ve The San Diego Union-Tribune gazetelerinde 7-8 Ağustos 1991 tarihlerinde haber olarak kullanılmış.
 
-# Hayırsever hırsızlar
+# Hayırsever hırsızlar (3*)
 
 Bizim apartmana yeni taşınan bi aile anlattı bu olayı. Bunların eski oturdukları semtte bi komşuları varmış. Karı koca yaşayan, çok zengin tiplermiş bunlar. Evleri değerli antikalarla, eşyalarla filan doluymuş. Çiftin bi gün arabası çalınmış. Hemen polise başvurmuşlar taabi. Ama aradan iki gün geçmiş, polisten bi haber çıkmamış.
 
@@ -289,16 +290,16 @@ Döndüklerinde (tahmin ettiğiniz gibi) bomboş bi halde bulmuşlar evlerini. S
 
 ## Üyeler ne demiş?
 
-e k: Bu da annemin efsanesi
+**e k: Bu da annemin efsanesi**
 Annem nereden duyduysa, benzer bir hikaye anlatmıştı. Bir belediye otobüsünde adamın teki yanında oturan kadına, "Bacım kolunda bu kadar bilezik taşıma. Zaman kötü" demiş. Kadın da korkuya kapılmış ve bilezikleri çıkarıp hepsini çantasına koymuş. Otobüsten indiği sırada o adam çantayı kapıp kaçmış. Birkaç gün sonra hırsız kadının evine telefon edip, "Ben pişman oldum. Kocanla filanca yere gel, altınları al" demiş. Kadın da kocasını alıp buluşma yerine gitmiş. Buluşma yerinde boşuna beklemişler taabi. Eve bi dönmüşler ki, kapı ardına kadar açık, yükte hafif pahada ağır ne varsa yad ellere kavuşmuş!
 
-Umut Arikan: Hakan Şükür diyor ki...
+**Umut Arikan: Hakan Şükür diyor ki...**
 Hakan Şükür, bu efsanenin hemen hemen aynısını TGRT'de katıldığı bir canlı yayında, kendi komşusunun ağzından anlatmıştı.
 
-Özge Öktemer: Bir filmde izlemiştim
+**Özge Öktemer: Bir filmde izlemiştim**
 "Oltada Balık Çantada Keklik" (Shooting Fish) adındaki İngiliz komedi filminde bu efsanenin aynısı vardı. Bir çift, filmin kahramanlarının arabasını soyuyor. Kahramanlarımız arabayı çalanlardan, kendi arabalarını çalıp (!) dolandırıcılık yapıyorlar. Ertesi gün de, yine onların evinin önüne arabayı bırakıp üzerine iki tane tiyatro bileti ve bir not koyuyorlar. Bizim kek çift de (arabayı çalanlar) tiyatroya gidip köpeklerin bir gününü anlatan, herkesi uyutan iğrenç bir oyunu izliyor. Bu sırada kahramanlar onların evine girip daha önce işledikleri suçun delillerini eve bırakıyorlar. Eve dönen kek çifti kapıda polis karşılıyor... Ne intikam ama!
 
-# Diş fırçasıyla ne yapmışlar?
+# Diş fırçasıyla ne yapmışlar? (2.5*)
 
 Boğaziçi'nden bi grup öğrenci sömestrde tatil için İngiltere'ye gitmiş. Bunlar bi araba kiralamış; sabah yola çıkıyorlarmış, önlerine çıkan her kayda değer yerde mola verip sonra da akşam bi yerlerde konaklıyolarmış.
 
@@ -320,7 +321,7 @@ Bu konuşmadan bi hafta sonra nişanlımı evinde ziyarete gittiğimde annesi be
 
 Evet, fotoğraflar gerçekti! Sakallı, muzip bakışlı bi genç olmadık yerlerini fırçalarken arkadaşı da durumu kamerayla tespit etmişti. Sanırım efsaneden feyz alan gençler bu aileye iğrenç bir sürpriz yaparak yılların efsanesini gerçeğe dönüştürmüş." 
 
-# Böyle de hırsızlık olur mu?
+# Böyle de hırsızlık olur mu? (2.5*)
 
 Kızkardeşimin kapı komşusu bi akşam arkadaşlarından birinin verdiği bi partiye katılmış. Gecenin ilerleyen saatlerinde partide tanıştığı bi kız, aynı saatlerde okuldan arkadaşlarının verdiği bi parti daha olduğunu söyleyerek birlikte oraya gitmeyi teklif etmiş. Çocuk seve seve kabul etmiş çünkü teklifi yapan gerçekten de çok alımlı bi kızmış. İkisi evden ayrılmışlar ve başka bi semtte olan partiye katılmışlar. İçki, şamata gırla gidiyomuş. Zaten daha evvelki evde de epeyce yükünü aldığından çocuk, epeyce sarhoş olmuş. Bi ara esrarlı sigaralar da çıkıp elden ele dolaşmaya başlayınca bizimkinde film iyice kopmuş.
 
@@ -336,7 +337,7 @@ Meğer çocuğun gece tanıştığı kız organ hırsızları ile işbirliği ya
 
 "İğneden sonra bayılmışım. Uyandığımda kendimi her tarafıma kablolar sarılı vaziyette yatakta buldum. Başımda da gürültülü bi makina vardı. Sonra bi hemşire yemek getirdi ve apandisitimin alındığını söyledi. Hastanede bi'kaç gün daha kaldım. Sonunda birisi gelip böbreğimin birini aldıklarını daha doğrusu çaldıklarını açıkladı ve bundan kimseye bahsetmemem için bana yüklü bir para teklif etti. Ben de ihtiyacım olduğu için parayı kabul ettim." 
 
-# Toplu iğneli sapıklar
+# Toplu iğneli sapıklar (2.5*)
 
 Bi grup üniversiteli genç diskoya gitmiş. Pistte dans ederlerken içlerinden bi kız acıyla bağırmış. Sanki biri iğne gibi birşey batırmış kıza. Yerlerine otururlarken arkadaşlarından biri kızın sırtına yapıştırılmış bir "sticker" (yoksa kağıt mı demeli) görmüş. Kağıtta "AIDS'liler arasına hoşgeldin bebek!" yazıyormuş. Herkes bunu kötü bir şaka olarak yorumlamış. Ancak kızın yine de içine kurt düşmüş. Bi'kaç hafta sonra hastaneye gitmiş. Yapılan tetkikler sonunda kızın kanında HIV pozitif olduğu belirlenmiş! 
 
@@ -350,13 +351,13 @@ Hürriyet'in tüketici köşesi yazarı Erkan Çelebi (Tüketicinin Erkan Abisi)
 
 ## Üyeler ne demiş?
 
-aslı can: Ben yaşadım bunu!
+**aslı can: Ben yaşadım bunu!**
 İnanılmaz gibi gelse de ne yazık ki bu olay gerçek. İstanbul'da yolda yürürken benim de kalçama iğne (toplu değil enjektör) batırıldı. Çevrede bahsederken başka kişilerin de farklı yerlerde başına geldiğini duydum. Ama genellikle (bende de olduğu gibi) saldırgan görülmediği için şikayette bulunulsa da bi fayda sağlamıycağından polis olaydan haberdar edilmiyo. Bu yüzden de bu olay insanların başına gelmesine rağmen fazla bilinmiyo. (Ya da dediğiniz gibi ciddiye alınmıyo ve asparagas denilip geçiliyo) Not: (Belki merak edersiniz diye) Benim sonuçlarım negatif çıktı. Duyduğum diğer kişilerin de...
 
-Evren Özcan: Jetonlu telefonlar
+**Evren Özcan: Jetonlu telefonlar**
 Bu efsane bir zamanlar çok yaygındı. O zamanlar ben de jetonlu telefonların jeton alma deliklerine AIDS'li toplu iğne koyduklarını duymuştum. 
 
-# 3000 dolarlık fatura
+# 3000 dolarlık fatura (2.5*)
 
 Beraber yaşayan bi çift ilişkisini bitirmek üzereymiş. Yalnız bu, biraz patırtılı kütürtülü, bol kavgalı bi ayrılıkmış. O aralarda adam uzak bi eyalete, iki haftalığına iş seyahatine çıkmış. Evden ayrılırken de kıza, "Sana ait ne varsa topla götür, benim bi iğneme bile dokunma. Döndüğümde seni bu evde görmek istemiyorum" demiş.
 
@@ -372,10 +373,10 @@ Bu efsanenin bi'kaç versiyonu daha var. Bunlardan birinde aynı intikam numaras
 
 ## Üyeler ne demiş?
 
-ebrar elbasan: İtalya'da yaşanmış
+**ebrar elbasan: İtalya'da yaşanmış**
 Bana bu hikayeyi İtalya'da konuşma hocam anlatmıştı. Onun hikayesinde hatun, beraber olduğu elemanın kendisini "iş gezisine gidiyorum" diye uyutup diğer sevgilisi ile tatile gittiğini oğreniyordu. (Bir İtalyan erkeği için gayet doğal bir davranış tarzı) Bu hikayedeki gibi, kadın anahtarıyla eve girip Japon yerel saat servisini arıyordu. Fatura miktarı, Claudio'nun hikayesinde (Claudio benim konuşma hocam) 600 milyon liretti. Adam kadını mahkemeye vermiş, ancak mahkeme; adamın kadına evinin anahtarını vermekle, ona içerideki tüm eşyaları kullanma hakkını da vermis olduğunu söyleyerek, kadının sadece bu "eşya kullanma hakkı"ndan yararlanmış olduğunu, bu nedenle de olayda suç unsuru bulunmadığı sonucuna varmış.
 
-# AIDS'li kuru fasulye
+# AIDS'li kuru fasulye (2*)
 
 Şikago'da bi çift evlilik yıldönümlerini kutlamak üzere Türk restoranına gitmiş. Yemekler son derece lezzetliymiş ama çift eve döndüğünde kadın olanının karnı felaket derecede ağrımaya başlamış. Geceyarısı hastanenin yolunu tutmuşlar. Muayene sonunda kadının zehirlendiği anlaşılarak midesi yıkanmış.
 
@@ -387,10 +388,10 @@ Amerika'da yaygın olan bu efsane genelde Türk ya da Fas yemekleri yapan yerler
 
 ## Üyeler ne demiş?
 
-Mehmet Guler: Spermli Türk döneri
+**Mehmet Guler: Spermli Türk döneri**
 Almanya'dan gelen bir gurbetçiden bunun değişik bir versiyonunu duymuştum: Almanya'daki döner satışları çok iyi gidiyormuş. Fakat bir gün gelen bir ihbar üzerine dönerle ilgili araştırma yapmışlar ve yanlış hatırlamıyorsam Hamburg'taki bir Türk lokantasında dönerde sperm bulmuşlar. Gurbetçi abi, "Kesinlikle dönerin adını kötülemek için, çekemedikleri için Almanlar yaptı" diyodu. 
 
-# Ertesi sabah kabusu
+# Ertesi sabah kabusu (2.5*)
 
 Bodrum'a yalnız başına tatile giden bi genç her gece bar bar dolaşıp körkütük sarhoş olana kadar içiyomuş. Çoğunlukla da bu barlardan birinde tanıştığı bi kadınla, oteldeki odasında noktalanıyomuş gece. Yine böyle bi gecede çok çok güzel bir kadınla tanışmış bizimki. Saat aslında o kadar ilerlememiş ama elinden kaçırmak istemediğinden kadını hemmen otele getirmiş. Gece boyunca tepişe tepişe sevişmişler, sonunda da yorgun düşüp uyuyakalmışlar.
 
@@ -404,7 +405,7 @@ Aynaya rujla yazılan not dışında başka AIDS bulaştırma efsaneleri de var.
 
 Aslına bakarsanız gerçek hayatta, intikam amacıyla böyle ilişkilere giren AIDS hastaları yok değil. 1998 yılının başlarında, ABD'de Pamela Wiser adında bi kadın AIDS olduktan sonra 50 erkekle ilişkiye girdiğini açıklamıştı bi gazeteye. Ardından da tutuklanarak "adam öldürmeye tam teşebbüsten" yargılanmıştı. Ancak kadının, yattığı erkeklere AIDS'li olduğunu söylediği ama adamların takmadığı anlaşılmıştı. 
 
-# Mafya komşum var benim
+# Mafya komşum var benim (2.5*)
 
 Zengin bi çiftin Los Angeles civarında bi çiftlik evi varmış. Bitişiklerindeki komşularının bi'takım mafya bağlantıları olduğunu duymuşlar ama hiç de öyle tiplere benzemiyolarmış doğrusu. Hatta, ilk taşındıklarında bizimkiler bunlara "hoşgeldin" ziyaretine gitmişler. Karı-koca temiz yüzlü, çok da kültürlü insanlarmış.
 
